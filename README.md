@@ -24,9 +24,9 @@
 
  ## ■ 共产党杀人历史
  
- | ![image](https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24584568/3034fde8-1737-11e7-964d-849b7599f51d.jpg) | 
+ | ![image](https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg) | 
  | --------------- | --------------- | --------------- | --------------- |
- | 苏共与德国纳粹的秘密协议 | 苏共暴政下的群体灭绝（下） | 苏共暴政下的群体灭绝（上） | 林辉：李大钊与其被中共批斗的长子 |
+ | 苏共与德国纳粹的秘密协议 | 苏共暴政下的群体灭绝（下） | 苏共暴政下的群体灭绝（上） | 广西文革中的吃人狂潮（中） |
  
  ## ■ 共产党破坏传统道德
  
