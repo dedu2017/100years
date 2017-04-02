@@ -46,9 +46,9 @@
  | --------------- | --------------- | --------------- | --------------- |
  | 林辉：造假的江姐受刑与《红岩》作者自杀 | 林辉：山本五十六座机被击落与中美合作所 | 李宇明：大饥荒时期的红色画家 | 林辉：真实的董存瑞与同名电影主角的遭遇 |
 
-## ■ 共产党破坏传统道德
+## ■ 共产党卖国
  
- | ![image](https://cloud.githubusercontent.com/assets/18081243/24590322/984c05c4-17b0-11e7-9421-892044616c2f.jpg) | <img src="https://cloud.githubusercontent.com/assets/18081243/15592373/92c18296-23e6-11e6-8109-8032c263a980.jpg" width="317" height="123"> | <img src="https://cloud.githubusercontent.com/assets/18081243/24590367/655f011a-17b1-11e7-94ff-6c6ffd3b97cf.jpg" width="320" height="200"> | <img src="https://cloud.githubusercontent.com/assets/18081243/24590365/655d7674-17b1-11e7-92a6-1841f118c507.jpg" width="320" height="200"> | 
+ | ![image](https://cloud.githubusercontent.com/assets/18081243/24590526/37a7deec-17b4-11e7-813a-97f702fc6da6.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590527/37a8ca82-17b4-11e7-8706-36b888ee68d0.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590529/37ac61ba-17b4-11e7-9bd5-303e7de63886.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590528/37a9f0f6-17b4-11e7-8223-021777d5049c.jpg) | 
  | --------------- | --------------- | --------------- | --------------- |
- | 中共“批孔”和建孔子学院的闹剧 | 广西文革中骇人听闻的性暴力 | 砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地 | 魏谷：孔子、历史和中共（一） |
+ | 中国人应知的重要事—中共七宗罪(下) | 中国人应知的重要事—中共七宗罪(上) | 毛泽东周恩来放弃日本巨额战争赔偿内幕 | 毛泽东至少六次感谢日本侵华 官方记载成铁证 |
 
