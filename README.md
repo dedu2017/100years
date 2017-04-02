@@ -1,7 +1,7 @@
 # 共产党百年真相
  ![image](https://cloud.githubusercontent.com/assets/18081243/24583565/361c094a-1714-11e7-8001-44e30390b841.png)
  
- ## ■  最新文章
+ ## ■ 最新文章
 ![zxwz](https://cloud.githubusercontent.com/assets/18081243/24584445/e9cb8334-1733-11e7-861a-4e207eaa302c.png)  
 
 | 王友琴：文革“斗争会”（下）	 | 	苏共与德国纳粹的秘密协议 |
@@ -15,3 +15,9 @@
 中国漫画开拓者丰子恺的文革遭遇	 | 	末代皇帝文革中连病带吓而死 族人被抄家
 广西文革中的吃人狂潮（上）	 | 	林辉：放弃马列的陈独秀与其逃港的女儿
 中共“批孔”和建孔子学院的闹剧	 | 	林辉：反抗中共的《星火》杂志与林昭之死
+
+ ## ■ 共产党杀人历史
+ 
+ | ![image](https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24584568/3034fde8-1737-11e7-964d-849b7599f51d.jpg) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ 
