@@ -34,7 +34,7 @@
  | --------------- | --------------- | --------------- | --------------- |
  | 中共“批孔”和建孔子学院的闹剧 | 广西文革中骇人听闻的性暴力 | 砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地 | 魏谷：孔子、历史和中共（一） | 
  
- ## ■ 共产党破坏迫害文化精英
+ ## ■ 共产党迫害文化精英
  
  | ![image](https://cloud.githubusercontent.com/assets/18081243/24584568/3034fde8-1737-11e7-964d-849b7599f51d.jpg) | <img src="https://cloud.githubusercontent.com/assets/18081243/24590366/655ddcfe-17b1-11e7-87cd-b9e29ea40462.jpg" width="300" height="123"> |  <img src="https://cloud.githubusercontent.com/assets/18081243/24590367/655f011a-17b1-11e7-94ff-6c6ffd3b97cf.jpg" width="300" height="123"> |  <img src="https://cloud.githubusercontent.com/assets/18081243/24590365/655d7674-17b1-11e7-92a6-1841f118c507.jpg" width="300" height="123"> | 
  | --------------- | --------------- | --------------- | --------------- |
