@@ -27,3 +27,9 @@
  | ![image](https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24584568/3034fde8-1737-11e7-964d-849b7599f51d.jpg) | 
  | --------------- | --------------- | --------------- | --------------- |
  | 苏共与德国纳粹的秘密协议 | 苏共暴政下的群体灭绝（下） | 苏共暴政下的群体灭绝（上） | 林辉：李大钊与其被中共批斗的长子 |
+ 
+ ## ■ 共产党破坏传统道德
+ 
+ | ![image](https://cloud.githubusercontent.com/assets/18081243/24590322/984c05c4-17b0-11e7-9421-892044616c2f.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590326/a7909b62-17b0-11e7-8f55-55231ecbfe8e.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590327/a9285be0-17b0-11e7-9161-43fcb3f97bd2.jpg) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ | 中共“批孔”和建孔子学院的闹剧 | 广西文革中骇人听闻的性暴力 | 砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地 | 魏谷：孔子、历史和中共（一） |
