@@ -52,3 +52,14 @@
  | --------------- | --------------- | --------------- | --------------- |
  | 中国人应知的重要事—中共七宗罪(下) | 中国人应知的重要事—中共七宗罪(上) | 毛泽东周恩来放弃日本巨额战争赔偿内幕 | 毛泽东至少六次感谢日本侵华 官方记载成铁证 |
 
+## ■ 共产党党魁面目
+ 
+ | ![image](https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590544/76ef1354-17b4-11e7-8670-64f9dc6c5c0a.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590543/76ec4c14-17b4-11e7-82f2-45692489cb7b.jpg) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ | 周恩来为何失态向贺龙骨灰7鞠躬？演戏手法被揭穿 | 周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆 | 毛泽东一句话 马来西亚共产党陷斗争绝境 | 周晓辉：从金正男被毒杀看共产党暗杀历史(上) |
+
+## ■ 共产党卖国
+ 
+ | ![image](https://cloud.githubusercontent.com/assets/18081243/24590526/37a7deec-17b4-11e7-813a-97f702fc6da6.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590527/37a8ca82-17b4-11e7-8706-36b888ee68d0.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590529/37ac61ba-17b4-11e7-9bd5-303e7de63886.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590528/37a9f0f6-17b4-11e7-8223-021777d5049c.jpg) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ | 中国人应知的重要事—中共七宗罪(下) | 中国人应知的重要事—中共七宗罪(上) | 毛泽东周恩来放弃日本巨额战争赔偿内幕 | 毛泽东至少六次感谢日本侵华 官方记载成铁证 |
