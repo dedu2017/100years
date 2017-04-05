@@ -1,5 +1,5 @@
 # 共产党百年真相
- [![image](https://cloud.githubusercontent.com/assets/18081243/24583565/361c094a-1714-11e7-8001-44e30390b841.png)](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sgnc.pdf）{:target="_blank"}
+ [![image](https://cloud.githubusercontent.com/assets/18081243/24583565/361c094a-1714-11e7-8001-44e30390b841.png)](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sgnc.pdf）
  ## ■ 共产党百年真相：特稿
 * 《大纪元时报》特刊：共产党百年真相  
 * 【特稿】共产主义不是出路而是绝路  
@@ -11,7 +11,7 @@
 
 | [王友琴：文革“斗争会”（下）](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/wgdzh2.pdf)	 | 	[苏共与德国纳粹的秘密协议](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sgnc.pdf) |
 | :--------------- | :--------------- |
-[林辉：山本五十六座机被击落与中美合作所](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sb56.pdf)	 | 	[苏共暴政下的群体灭绝（下）](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sgqtmj2.pdf)
+[林辉：山本五十六座机被击落与中美合作所](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sb56.pdf)	 | 	[苏共暴政下的群体灭绝（下）](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sgqtmj2.pdf){:target="_blank"}
 [“美猴王”父亲钻狗洞 伯父被摧残致死](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/hwfqzgd.pdf)	 | 	[苏共暴政下的群体灭绝（上）](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sgqtmj1.pdf)
 [王友琴：文革“斗争会”（上）](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/wgdzh1.pdf)	 | 	[林辉：李大钊与其被中共批斗的长子](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/ldzyzz.pdf)
 [被枪决的1955年文科状元](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/qjdzy.pdf)	 | 	[吴祖光与新凤霞——文艺伉俪的人生磨难](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/wzgyxfx.pdf)
