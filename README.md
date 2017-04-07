@@ -1,25 +1,25 @@
 # 共产党百年真相
- [![image](https://cloud.githubusercontent.com/assets/18081243/24583565/361c094a-1714-11e7-8001-44e30390b841.png)](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sgnc.pdf)
+ <a href="" target="_blank">![image](https://cloud.githubusercontent.com/assets/18081243/24583565/361c094a-1714-11e7-8001-44e30390b841.png)</a>
  ## ■ 共产党百年真相：特稿
-* [《大纪元时报》特刊：共产党百年真相](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/tekan/gcdbnzx.pdf)  
-* [【特稿】共产主义不是出路而是绝路](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/tekan/gczybscl.pdf)
-* [【特稿】感情代替不了理智](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/tekan/gqdtbllz.pdf)
+* [《大纪元时报》特刊：共产党百年真相  
+* [【特稿】共产主义不是出路而是绝路
+* [【特稿】感情代替不了理智
 
 
  ## ■ 最新文章
 ![zxwz](https://cloud.githubusercontent.com/assets/18081243/24584445/e9cb8334-1733-11e7-861a-4e207eaa302c.png)  
 
-| [王友琴：文革“斗争会”（下）](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/wgdzh2.pdf)	 | 	[苏共与德国纳粹的秘密协议](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sgnc.pdf) |
+| 王友琴：文革“斗争会”（下）	 | 	苏共与德国纳粹的秘密协议 |
 | :--------------- | :--------------- |
-[林辉：山本五十六座机被击落与中美合作所](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sb56.pdf)	 | 	[苏共暴政下的群体灭绝（下）](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sgqtmj2.pdf)
-[“美猴王”父亲钻狗洞 伯父被摧残致死](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/hwfqzgd.pdf)	 | 	[苏共暴政下的群体灭绝（上）](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sgqtmj1.pdf)
-[王友琴：文革“斗争会”（上）](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/wgdzh1.pdf)	 | 	[林辉：李大钊与其被中共批斗的长子](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/ldzyzz.pdf)
-[被枪决的1955年文科状元](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/qjdzy.pdf)	 | 	[吴祖光与新凤霞——文艺伉俪的人生磨难](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/wzgyxfx.pdf)
- [李宇明：大饥荒时期的红色画家](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/djhhj.pdf)	 | 	[林辉：同仁堂传人自杀 母亲和夫人被打死](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/trtcrzs.pdf)
- [中共元老李立三一家的生死劫难](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/llsjn.pdf)	 | 	[广西文革中的吃人狂潮（中）](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/crkc2.pdf)
- [中国漫画开拓者丰子恺的文革遭遇](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/fzkwg.pdf)	 | 	[末代皇帝文革中连病带吓而死 族人被抄家](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/mdhd.pdf)
-[广西文革中的吃人狂潮（上）](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/crkc1.pdf)	 | 	[林辉：放弃马列的陈独秀与其逃港的女儿](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/fqml.pdf)
-[中共“批孔”和建孔子学院的闹剧](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/kzxy.pdf)	 | 	[林辉：反抗中共的《星火》杂志与林昭之死](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/fkxh.pdf)
+<a href="" target="_blank">林辉：山本五十六座机被击落与中美合作所	 | 	<a href="" target="_blank">苏共暴政下的群体灭绝（下）
+<a href="" target="_blank">“美猴王”父亲钻狗洞 伯父被摧残致死	 | 	<a href="" target="_blank">苏共暴政下的群体灭绝（上）
+<a href="" target="_blank">王友琴：文革“斗争会”（上）	 | 	<a href="" target="_blank">林辉：李大钊与其被中共批斗的长子
+<a href="" target="_blank">被枪决的1955年文科状元	 | 	<a href="" target="_blank">吴祖光与新凤霞——文艺伉俪的人生磨难]
+ <a href="" target="_blank">李宇明：大饥荒时期的红色画家	 | 	<a href="" target="_blank">林辉：同仁堂传人自杀 母亲和夫人被打死
+ <a href="" target="_blank">中共元老李立三一家的生死劫难	 | 	<a href="" target="_blank">广西文革中的吃人狂潮（中）
+ <a href="" target="_blank">中国漫画开拓者丰子恺的文革遭遇	 | 	<a href="" target="_blank">末代皇帝文革中连病带吓而死 族人被抄家
+<a href="" target="_blank">广西文革中的吃人狂潮（上）	 | 	<a href="" target="_blank">林辉：放弃马列的陈独秀与其逃港的女儿
+<a href="" target="_blank">中共“批孔”和建孔子学院的闹剧	 | 	<a href="" target="_blank">林辉：反抗中共的《星火》杂志与林昭之死
 
  ## ■ 共产党杀人历史
  
