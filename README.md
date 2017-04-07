@@ -11,7 +11,7 @@
 
 | <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wgdzh2.pdf" target="_blank">王友琴：文革“斗争会”（下）</a>	 | 	<a href="" target="_blank">苏共与德国纳粹的秘密协议</a> |
 | :--------------- | :--------------- |
-<a href="" target="_blank">林辉：山本五十六座机被击落与中美合作所</a>	 | 	<a href="" target="_blank">苏共暴政下的群体灭绝（下</a>
+<a href="" target="view_window">林辉：山本五十六座机被击落与中美合作所</a>	 | 	<a href="" target="_blank">苏共暴政下的群体灭绝（下</a>
 <a href="" target="_blank">“美猴王”父亲钻狗洞 伯父被摧残致死</a>	 | 	<a href="" target="_blank">苏共暴政下的群体灭绝（上</a>
 <a href="" target="_blank">王友琴：文革“斗争会”（上）</a>	 | 	<a href="" target="_blank">林辉：李大钊与其被中共批斗的长子</a>
 <a href="" target="_blank">被枪决的1955年文科状元</a>	 | 	<a href="" target="_blank">吴祖光与新凤霞——文艺伉俪的人生磨难]</a>
