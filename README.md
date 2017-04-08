@@ -1,5 +1,5 @@
 # 共产党百年真相
- <a href="" target="_blank">![image](https://cloud.githubusercontent.com/assets/18081243/24583565/361c094a-1714-11e7-8001-44e30390b841.png)</a>
+ <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf" target="_blank">![image](https://cloud.githubusercontent.com/assets/18081243/24583565/361c094a-1714-11e7-8001-44e30390b841.png)</a>
  ## ■ 共产党百年真相：特稿
 * [《大纪元时报》特刊：共产党百年真相  
 * [【特稿】共产主义不是出路而是绝路
@@ -9,41 +9,41 @@
  ## ■ 最新文章
 ![zxwz](https://cloud.githubusercontent.com/assets/18081243/24584445/e9cb8334-1733-11e7-861a-4e207eaa302c.png)  
 
-| <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wgdzh2.pdf" target="_blank">王友琴：文革“斗争会”（下）</a>	 | 	<a href="" target="_blank">苏共与德国纳粹的秘密协议</a> |
+| <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wgdzh2.pdf" target="_blank">王友琴：文革“斗争会”（下）</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf" target="_blank">苏共与德国纳粹的秘密协议</a> |
 | :--------------- | :--------------- |
-<a href="" target="view_window">林辉：山本五十六座机被击落与中美合作所</a>	 | 	<a href="" target="_blank">苏共暴政下的群体灭绝（下</a>
-<a href="" target="_blank">“美猴王”父亲钻狗洞 伯父被摧残致死</a>	 | 	<a href="" target="_blank">苏共暴政下的群体灭绝（上</a>
-<a href="" target="_blank">王友琴：文革“斗争会”（上）</a>	 | 	<a href="" target="_blank">林辉：李大钊与其被中共批斗的长子</a>
-<a href="" target="_blank">被枪决的1955年文科状元</a>	 | 	<a href="" target="_blank">吴祖光与新凤霞——文艺伉俪的人生磨难]</a>
- <a href="" target="_blank">李宇明：大饥荒时期的红色画家</a>	 | 	<a href="" target="_blank">林辉：同仁堂传人自杀 母亲和夫人被打死</a>
- <a href="" target="_blank">中共元老李立三一家的生死劫难</a>	 | 	<a href="" target="_blank">广西文革中的吃人狂潮（中）</a>
- <a href="" target="_blank">中国漫画开拓者丰子恺的文革遭遇</a>	 | 	<a href="" target="_blank">末代皇帝文革中连病带吓而死 族人被抄家</a>
-<a href="" target="_blank">广西文革中的吃人狂潮（上）</a>	 | 	<a href="" target="_blank">林辉：放弃马列的陈独秀与其逃港的女儿</a>
-<a href="" target="_blank">中共“批孔”和建孔子学院的闹剧</a>	 | 	<a href="" target="_blank">林辉：反抗中共的《星火》杂志与林昭之死</a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sb56.pdf" target="view_window">林辉：山本五十六座机被击落与中美合作所</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf" target="_blank">苏共暴政下的群体灭绝（下</a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hwfqzgd.pdf" target="_blank">“美猴王”父亲钻狗洞 伯父被摧残致死</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf" target="_blank">苏共暴政下的群体灭绝（上</a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wgdzh1.pdf" target="_blank">王友琴：文革“斗争会”（上）</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ldzyzz.pdf" target="_blank">林辉：李大钊与其被中共批斗的长子</a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/qjdzy.pdf" target="_blank">被枪决的1955年文科状元</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wzgyxfx.pdf" target="_blank">吴祖光与新凤霞——文艺伉俪的人生磨难]</a>
+ <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/djhhj.pdf" target="_blank">李宇明：大饥荒时期的红色画家</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/trtcrzs.pdf" target="_blank">林辉：同仁堂传人自杀 母亲和夫人被打死</a>
+ <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/llsjn.pdf" target="_blank">中共元老李立三一家的生死劫难</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf" target="_blank">广西文革中的吃人狂潮（中）</a>
+ <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf" target="_blank">中国漫画开拓者丰子恺的文革遭遇</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/mdhd.pdf" target="_blank">末代皇帝文革中连病带吓而死 族人被抄家</a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc1.pdf" target="_blank">广西文革中的吃人狂潮（上）</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqml.pdf" target="_blank">林辉：放弃马列的陈独秀与其逃港的女儿</a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf" target="_blank">中共“批孔”和建孔子学院的闹剧</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fkxh.pdf" target="_blank">林辉：反抗中共的《星火》杂志与林昭之死</a>
 
  ## ■ 共产党杀人历史
  
  | [![image](https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg)](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/sgnc.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg)]() | [![image](https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg)]() | [![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg)](https://github.com/tomalltruthforyou/BainNianCCP/blob/master/article/crkc2.pdf) | 
  | --------------- | --------------- | --------------- | --------------- |
- | 苏共与德国纳粹的秘密协议 | 苏共暴政下的群体灭绝（下） | 苏共暴政下的群体灭绝（上） | 广西文革中的吃人狂潮（中） |
+ | [苏共与德国纳粹的秘密协议](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [苏共暴政下的群体灭绝（下）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [苏共暴政下的群体灭绝（上）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [广西文革中的吃人狂潮（中）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
  
  ## ■ 共产党破坏传统道德
  
  | ![image](https://cloud.githubusercontent.com/assets/18081243/24590322/984c05c4-17b0-11e7-9421-892044616c2f.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590326/a7909b62-17b0-11e7-8f55-55231ecbfe8e.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590327/a9285be0-17b0-11e7-9161-43fcb3f97bd2.jpg) | 
  | --------------- | --------------- | --------------- | --------------- |
- | 中共“批孔”和建孔子学院的闹剧 | 广西文革中骇人听闻的性暴力 | 砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地 | 魏谷：孔子、历史和中共（一） | 
+ | [中共“批孔”和建孔子学院的闹剧](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf) | 广西文革中骇人听闻的性暴力 | 砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地 | 魏谷：孔子、历史和中共（一） | 
  
  ## ■ 共产党迫害文化精英
  
  | ![image](https://cloud.githubusercontent.com/assets/18081243/24584568/3034fde8-1737-11e7-964d-849b7599f51d.jpg) | <img src="https://cloud.githubusercontent.com/assets/18081243/24590366/655ddcfe-17b1-11e7-87cd-b9e29ea40462.jpg" width="300" height="123"> |  <img src="https://cloud.githubusercontent.com/assets/18081243/24590367/655f011a-17b1-11e7-94ff-6c6ffd3b97cf.jpg" width="300" height="123"> |  <img src="https://cloud.githubusercontent.com/assets/18081243/24590365/655d7674-17b1-11e7-92a6-1841f118c507.jpg" width="300" height="123"> | 
  | --------------- | --------------- | --------------- | --------------- |
- | 林辉：李大钊与其被中共批斗的长子 | 被枪决的1955年文科状元 | 吴祖光与新凤霞——文艺伉俪的人生磨难 | 中国漫画开拓者丰子恺的文革遭遇 |
+ | [林辉：李大钊与其被中共批斗的长子](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ldzyzz.pdf) | [被枪决的1955年文科状元](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/qjdzy.pdf) | [吴祖光与新凤霞——文艺伉俪的人生磨难](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wzgyxfx.pdf) | [中国漫画开拓者丰子恺的文革遭遇](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf) |
 
 ## ■ 共产党窜改历史
  
  | ![image](https://cloud.githubusercontent.com/assets/18081243/24590497/d0e23a04-17b3-11e7-8602-4a94920a9ef5.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590495/d0e16d36-17b3-11e7-9952-c15d04917ebe.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590498/d0e29486-17b3-11e7-96a8-c3e025ba0249.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590496/d0e194d2-17b3-11e7-8568-53145a296bad.jpg) | 
  | --------------- | --------------- | --------------- | --------------- |
- | 林辉：造假的江姐受刑与《红岩》作者自杀 | 林辉：山本五十六座机被击落与中美合作所 | 李宇明：大饥荒时期的红色画家 | 林辉：真实的董存瑞与同名电影主角的遭遇 |
+ | 林辉：造假的江姐受刑与《红岩》作者自杀 | 林辉：山本五十六座机被击落与中美合作所 | [李宇明：大饥荒时期的红色画家](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/djhhj.pdf) | 林辉：真实的董存瑞与同名电影主角的遭遇 |
 
 ## ■ 共产党卖国
  
