@@ -11,8 +11,8 @@
 
 | <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wgdzh2.pdf" target="_blank">王友琴：文革“斗争会”（下）</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf" target="_blank">苏共与德国纳粹的秘密协议</a> |
 | :--------------- | :--------------- |
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sb56.pdf" target="view_window">林辉：山本五十六座机被击落与中美合作所</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf" target="_blank">苏共暴政下的群体灭绝（下</a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hwfqzgd.pdf" target="_blank">“美猴王”父亲钻狗洞 伯父被摧残致死</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf" target="_blank">苏共暴政下的群体灭绝（上</a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sb56.pdf" target="view_window">林辉：山本五十六座机被击落与中美合作所</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf" target="_blank">苏共暴政下的群体灭绝（下）</a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hwfqzgd.pdf" target="_blank">“美猴王”父亲钻狗洞 伯父被摧残致死</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf" target="_blank">苏共暴政下的群体灭绝（上）</a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wgdzh1.pdf" target="_blank">王友琴：文革“斗争会”（上）</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ldzyzz.pdf" target="_blank">林辉：李大钊与其被中共批斗的长子</a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/qjdzy.pdf" target="_blank">被枪决的1955年文科状元</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wzgyxfx.pdf" target="_blank">吴祖光与新凤霞——文艺伉俪的人生磨难]</a>
  <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/djhhj.pdf" target="_blank">李宇明：大饥荒时期的红色画家</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/trtcrzs.pdf" target="_blank">林辉：同仁堂传人自杀 母亲和夫人被打死</a>
