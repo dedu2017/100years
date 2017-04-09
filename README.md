@@ -55,7 +55,7 @@
  
  | ![image](https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590544/76ef1354-17b4-11e7-8670-64f9dc6c5c0a.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg) | 
  | --------------- | --------------- | --------------- | --------------- |
- | 周恩来为何失态向贺龙骨灰7鞠躬？演戏手法被揭穿 | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(下)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm2.pdf) | [毛泽东一句话 马来西亚共产党陷斗争绝境](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/mlxydzjj.pdf) | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm1.pdf) |
+ | [周晓辉：从金正男被毒杀看共产党暗杀历史(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/jznds1.pdf) | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(下)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm2.pdf) | [毛泽东一句话 马来西亚共产党陷斗争绝境](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/mlxydzjj.pdf) | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm1.pdf) |
 
 ## ■ 共产党摧毁经济
  
