@@ -1,7 +1,7 @@
 # 共产党百年真相
  <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf" target="_blank">![image](https://cloud.githubusercontent.com/assets/18081243/24583565/361c094a-1714-11e7-8001-44e30390b841.png)</a>
  ## ■ 共产党百年真相：特稿
-* [《大纪元时报》特刊：共产党百年真相](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gcdbnzx.pdf)  
+* [《大纪元时报》特刊：共产党百年真相](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/Tekan_20170317.pdf)  
  * [【特稿】共产主义不是出路而是绝路](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gczybscl.pdf)
  * [【特稿】感情代替不了理智](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gqdtbllz.pdf)
 
