@@ -53,7 +53,7 @@
 
 ## ■ 共产党党魁面目
  
- | ![image](https://cloud.githubusercontent.com/assets/18081243/24590543/76ec4c14-17b4-11e7-82f2-45692489cb7b.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590544/76ef1354-17b4-11e7-8670-64f9dc6c5c0a.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg) | 
+ | ![image](https://cloud.githubusercontent.com/assets/18081243/24590543/76ec4c14-17b4-11e7-82f2-45692489cb7b.jpg) | <img src="https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg" width="300" height="123"> | ![image](https://cloud.githubusercontent.com/assets/18081243/24590544/76ef1354-17b4-11e7-8670-64f9dc6c5c0a.jpg) | <img src="https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg" width="300" height="123"> | 
  | --------------- | --------------- | --------------- | --------------- |
  | [周晓辉：从金正男被毒杀看共产党暗杀历史(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/jznds1.pdf) | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(下)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm2.pdf) | [毛泽东一句话 马来西亚共产党陷斗争绝境](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/mlxydzjj.pdf) | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm1.pdf) |
 
