@@ -35,9 +35,9 @@
  
  ## ■ 共产党迫害文化精英
  
- | [![image](https://cloud.githubusercontent.com/assets/18081243/24584568/3034fde8-1737-11e7-964d-849b7599f51d.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ldzyzz.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590366/655ddcfe-17b1-11e7-87cd-b9e29ea40462.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/qjdzy.pdf) |  [<img src="https://cloud.githubusercontent.com/assets/18081243/24590367/655f011a-17b1-11e7-94ff-6c6ffd3b97cf.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wzgyxfx.pdf) |  [<img src="https://cloud.githubusercontent.com/assets/18081243/24590365/655d7674-17b1-11e7-92a6-1841f118c507.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf) | 
- | --------------- | --------------- | --------------- | --------------- |
- | [林辉：李大钊与其被中共批斗的长子](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ldzyzz.pdf) | [被枪决的1955年文科状元](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/qjdzy.pdf) | [吴祖光与新凤霞——文艺伉俪的人生磨难](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wzgyxfx.pdf) | [中国漫画开拓者丰子恺的文革遭遇](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf) |
+| [<img src="https://cloud.githubusercontent.com/assets/18081243/24584568/3034fde8-1737-11e7-964d-849b7599f51d.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ldzyzz.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590366/655ddcfe-17b1-11e7-87cd-b9e29ea40462.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/qjdzy.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590367/655f011a-17b1-11e7-94ff-6c6ffd3b97cf.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wzgyxfx.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590365/655d7674-17b1-11e7-92a6-1841f118c507.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf) |
+| --------------- | --------------- | --------------- | --------------- |
+| [林辉：李大钊与其被中共批斗的长子](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ldzyzz.pdf) | [被枪决的1955年文科状元](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/qjdzy.pdf) | [吴祖光与新凤霞——文艺伉俪的人生磨难](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wzgyxfx.pdf) | [中国漫画开拓者丰子恺的文革遭遇](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf) |
 
 ## ■ 共产党窜改历史
  
