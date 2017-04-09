@@ -43,7 +43,7 @@
  
  | ![image](https://cloud.githubusercontent.com/assets/18081243/24590497/d0e23a04-17b3-11e7-8602-4a94920a9ef5.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590495/d0e16d36-17b3-11e7-9952-c15d04917ebe.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590498/d0e29486-17b3-11e7-96a8-c3e025ba0249.jpg) | ![image](https://cloud.githubusercontent.com/assets/18081243/24590496/d0e194d2-17b3-11e7-8568-53145a296bad.jpg) | 
  | --------------- | --------------- | --------------- | --------------- |
- | 林辉：造假的江姐受刑与《红岩》作者自杀 | 林辉：山本五十六座机被击落与中美合作所 | [李宇明：大饥荒时期的红色画家](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/djhhj.pdf) | 林辉：真实的董存瑞与同名电影主角的遭遇 |
+ | 林辉：造假的江姐受刑与《红岩》作者自杀 | <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sb56.pdf" target="view_window">林辉：山本五十六座机被击落与中美合作所</a> | [李宇明：大饥荒时期的红色画家](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/djhhj.pdf) | 林辉：真实的董存瑞与同名电影主角的遭遇 |
 
 ## ■ 共产党卖国
  
