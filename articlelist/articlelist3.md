@@ -42,4 +42,4 @@
 
 [![63](https://cloud.githubusercontent.com/assets/20497750/24990517/363a0192-1fda-11e7-816a-4ce7892380f6.png)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf)
 
-[首页](https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/articlelist/articlelist1.md) &nbsp; [1](https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/articlelist/articlelist1.md) &nbsp; [2](https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/articlelist/articlelist2.md) &nbsp; 3 &nbsp; [下一页](https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/articlelist/articlelist2.md) <p align="right"> [返回主页](https://github.com/xjy16/BaiNianCCP) </p>
+[首页](https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/articlelist/articlelist1.md) &nbsp; [1](https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/articlelist/articlelist1.md) &nbsp; [2](https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/articlelist/articlelist2.md) &nbsp; 3 &nbsp;  <p align="right"> [返回主页](https://github.com/xjy16/BaiNianCCP) </p>
