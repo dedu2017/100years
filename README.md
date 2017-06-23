@@ -1,4 +1,4 @@
-✪ 本站永久网址  https://git.io/true168   
+✪ 本站永久网址  https://git.io/bnccp 
 # 共产党百年真相
  <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/biaoti-0415.pdf" target="_blank">![image](https://cloud.githubusercontent.com/assets/20497750/25068840/1b60a396-2235-11e7-8a16-48b69cbb0917.png)</a>
 ### ■ 共产党百年真相：特稿
