@@ -16,15 +16,9 @@
   | [【百年红祸】专题 第二集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [【百年红祸】专题 第一集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | 
  
 ### ■ 共产党百年真相：特稿
-| [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
+| [![image](https://github.com/dedu2017/bnhh/blob/master/p8354541a257043066.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/p8318261a331114172.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
  | --------------- | --------------- | --------------- | --------------- |
   | [【共产党百年真相】系列片：血腥的土改与农村的没落](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [【共产党百年真相】系列片：傅雷之死](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [【共产党百年真相】系列片：共产主义不是出路 而是绝路（下）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [【共产党百年真相】系列片：共产主义不是出路 而是绝路（上）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
-
-
-
-* [《大纪元时报》特刊：共产党百年真相](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/Tekan_20170317.pdf)  
- * [【特稿】共产主义不是出路而是绝路](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gczybscl.pdf)
- * [【特稿】感情代替不了理智](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gqdtbllz.pdf)
 
 
  ### ■ [最新文章](https://github.com/xjy16/BaiNianCCP/blob/master/ArticleList/articleList1.md)
