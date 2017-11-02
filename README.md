@@ -1,4 +1,9 @@
-✪ 本站永久网址  https://git.io/bnhh 
+ ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a>欢迎来到 神韵:中国古典舞 
+
+   ✪ 本站永久网址  https://git.io/bnhh 网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 
+  
+
+<a href="http://rong.yov.li/?c816711&from=apple&tag=254" target="_blank"><img src="https://github.com/dedu2017/gettruth/blob/master/%E7%A5%9E%E9%9F%B5%E4%B8%AD%E5%9B%BD%E8%88%9E%E6%8E%A8%E5%B9%BF_11.jpg" width="639"></a>
 # 百年红祸
  | [![image](https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
  | --------------- | --------------- | --------------- | --------------- |
