@@ -2,15 +2,21 @@
 
    ✪ 本站永久网址  https://git.io/bnhh 网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 
   
-
-<a href="http://rong.yov.li/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh.jpg" ></a>
 # 百年红祸
+<a href="http://rong.yov.li/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh.jpg" ></a>
+
+### ■ 【百年红祸】特别专题
  | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ | [【百年红祸】特别专题 第十集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [【百年红祸】特别专题 第九集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [【百年红祸】特别专题 第八集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [【百年红祸】特别专题 第七集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
+  | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ | [【百年红祸】特别专题 第十集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [【百年红祸】特别专题 第九集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [【百年红祸】特别专题 第八集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [【百年红祸】特别专题 第七集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
+  | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
  | --------------- | --------------- | --------------- | --------------- |
  | [【百年红祸】特别专题 第十集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [【百年红祸】特别专题 第九集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [【百年红祸】特别专题 第八集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [【百年红祸】特别专题 第七集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
  
  
- <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/biaoti-0415.pdf" target="_blank">![image](https://cloud.githubusercontent.com/assets/20497750/25068840/1b60a396-2235-11e7-8a16-48b69cbb0917.png)</a>
 ### ■ 共产党百年真相：特稿
 * [《大纪元时报》特刊：共产党百年真相](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/Tekan_20170317.pdf)  
  * [【特稿】共产主义不是出路而是绝路](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gczybscl.pdf)
