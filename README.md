@@ -1,4 +1,4 @@
- ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a>## 欢迎来到：揭秘百年红祸 
+ ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a> 欢迎来到：揭秘百年红祸 
 
    ✪ 本站永久网址  https://git.io/bnhh 网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 
   
@@ -8,7 +8,8 @@
 ### ■ 【百年红祸】特别专题
 | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
  | --------------- | --------------- | --------------- | --------------- |
- | [【百年红祸】专题 第十集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [【百年红祸】专题 第九集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [【百年红祸】专题 第八集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [【百年红祸】专题 第七集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
+  | [【百年红祸】专题 第十集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [【百年红祸】专题 第九集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [【百年红祸】专题 第八集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [【百年红祸】专题 第七集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
+  
 | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
  | --------------- | --------------- | --------------- | --------------- |
  | [【百年红祸】专题 第十集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [【百年红祸】专题 第九集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [【百年红祸】专题 第八集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [【百年红祸】专题 第七集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
@@ -80,3 +81,62 @@
  | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590587/0e5e6276-17b5-11e7-8fe0-6ac97790f8a7.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gczybscl.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590585/0e5bd286-17b5-11e7-9374-a2c9f4627c6c.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/bytslk.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590586/0e5dc460-17b5-11e7-9437-a4dea2703900.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/lnbg.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590588/0e6043fc-17b5-11e7-99d0-c926e6f3a9c4.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ydspfl.pdf) | 
  | --------------- | --------------- | --------------- | --------------- |
  | [【特稿】共产主义不是出路而是绝路](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gczybscl.pdf) | [【乱象剖析】白衣“天使”的冷酷](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/bytslk.pdf) | [【乱象剖析】老年悲歌 痛在夕阳](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/lnbg.pdf) | 【[乱象剖析】有毒食品泛滥 民以何为食](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ydspfl.pdf) |
+ 
+### ■ 更多精彩请访问「网门」，点击图片可直达
+<a href="http://rong.yov.li/?from=apple&tag=5258" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg"></a>
+
+### ■　打开天窗,听一听外面的声音...
+   <td align=center>  
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816850&from=apple">✪今日点击...........全球华语最热脱口秀</a><br/>
+  </tr>
+  <tr>
+    <td align=center>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816857&from=apple">✪文昭解读...........解析全球最热门时事</a><br/>
+   </tr>
+  <tr>
+    <td align=center>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816855&from=apple">✪环球直击...........透析最新的全球资讯</a><br/>
+   </tr>
+  <tr>
+      <td align=center>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816860&from=apple">✪中国禁闻...........报道中国最深度内幕</a><br/>
+   </tr>
+  <tr>
+      <td align=center>      
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816479&from=apple">✪美国之音...........世界最大的对外广播</a><br/>
+   </tr>
+  <tr>
+    <td align=center>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816456&from=apple">✪希望之声...........中国24小时真实讯息</a><br/>
+   </tr>
+  <tr>
+      <td align=center>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816424&from=apple">✪自由亚洲............听见亚洲真实的声音</a><br/>
+   </tr>
+  <tr>
+
+
+【安卓版翻墙软件】
+
+### ■　 【安卓版翻墙软件】下载地址 
+
+**[网门安卓版]**下载地址(https://raw.githubusercontent.com/ogate/up/master/chrome.apk) 
+[网门电脑版](https://raw.githubusercontent.com/ogate/up/master/chrome.zip) 
+
+**无界一点通**下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
+
+**新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
+
+
+【电脑版翻墙软件】  
+
+**自由门** 06月27日发布 自由门7.59版 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
+
+**无界浏览** 7月10日无界发布16.03版[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
+
+## ■ 友好链接**
+
+[网门oGate](https://git.io/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)| [ 神韵:中国古典舞](https://github.com/dedu2017/gettruth/blob/master/README.md)| 
+
+QQ或360浏览器流氓拦截请放行。
+
