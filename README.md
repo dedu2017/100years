@@ -116,14 +116,13 @@
   <tr>
 
 
-【安卓版翻墙软件】
+### ■　 【翻墙软件】
 
-### ■　 【安卓版翻墙软件】下载地址 
+**[网门安卓版]**[点击下载最新版](https://raw.githubusercontent.com/ogate/up/master/chrome.apk) 
 
-**[网门安卓版]**下载地址(https://raw.githubusercontent.com/ogate/up/master/chrome.apk) 
-[网门电脑版](https://raw.githubusercontent.com/ogate/up/master/chrome.zip) 
-
-**无界一点通**下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
+**[网门电脑版]**[点击下载最新版](https://raw.githttps://raw.githubusercontent.com/ogate/up/master/chrome.zip) 
+　　　　
+**无界一点通** [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
 
 **新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
 
