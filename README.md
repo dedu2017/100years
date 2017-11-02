@@ -13,11 +13,7 @@
 | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
  | --------------- | --------------- | --------------- | --------------- |
  | [【百年红祸】专题 第六集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [【百年红祸】专题 第五集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [【百年红祸】专题 第四集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [【百年红祸】专题 第三集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
- 
- | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) |
- (https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |　|　|　| 
- | --------------- | --------------- | --------------- | --------------- |
- | [【百年红祸】专题 第二集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [【百年红祸】专题 第一集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) |　|　|　|  
+  | [【百年红祸】专题 第二集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [【百年红祸】专题 第一集](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | 
  
 ### ■ 共产党百年真相：特稿
 | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
