@@ -37,6 +37,7 @@
 【共产党百年真相】系列片：血腥的土改与农村的没落|【共产党百年真相】系列片：傅雷之死
 
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
 | ------------ | ------------- |
 【共产党百年真相】系列片：共产主义不是出路 而是绝路（上）|[【共产党百年真相】系列片：共产主义不是出路 而是绝路（下）
 
@@ -46,7 +47,7 @@
 [![zxwz](https://cloud.githubusercontent.com/assets/20497750/25068841/1b727a8a-2235-11e7-95a4-e7829cc79da5.png)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zxwz-0415.pdf)
 
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zftg.pdf" target="_blank">丁抒：执政初期的镇反与土改阳谋</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wgzs.pdf" target="_blank">组图：文革中自杀的留美归国科学家</a>
-| :--------------- | :--------------- |
+| --------------- | --------------- |
 | <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wgdzh2.pdf" target="_blank">王友琴：文革“斗争会”（下）</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf" target="_blank">苏共与德国纳粹的秘密协议</a> |
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sb56.pdf" target="view_window">林辉：山本五十六座机被击落与中美合作所</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf" target="_blank">苏共暴政下的群体灭绝（下）</a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hwfqzgd.pdf" target="_blank">“美猴王”父亲钻狗洞 伯父被摧残致死</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf" target="_blank">苏共暴政下的群体灭绝（上）</a>
@@ -62,7 +63,6 @@
  | [![image](https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image]
  | :--------------- | :--------------- |
 (https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
-
  | [苏共与德国纳粹的秘密协议](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [苏共暴政下的群体灭绝（下）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [苏共暴政下的群体灭绝（上）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [广西文革中的吃人狂潮（中）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
  
  ### ■ 共产党破坏传统道德
