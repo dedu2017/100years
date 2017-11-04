@@ -6,27 +6,40 @@
 <a href="http://rong.yov.li/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh.jpg" ></a>
 
 
-### ■ 【百年红祸】特别专题
+### ■ 【百年红祸】特别专题（点击图片可直达）
 
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
-[百年红祸1 | 百年红祸2
+百年红祸第一集| 百年红祸第二集
 
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
-[百年红祸1| 百年红祸4
+百年红祸第五集|百年红祸第六集
+
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+| ------------ | ------------- |
+百年红祸第七集|百年红祸第八集
+
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+| ------------ | ------------- |
+百年红祸第九集|百年红祸第十集
 
  
  
 ### ■ 共产党百年真相：特稿
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8354541a257043066.jpg" width="317" height="123"></a>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8318261a331114172.jpg" width="317" height="123"></a>
+| ------------ | ------------- |
+【共产党百年真相】系列片：血腥的土改与农村的没落|【共产党百年真相】系列片：傅雷之死
+
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
+| ------------ | ------------- |
+【共产党百年真相】系列片：共产主义不是出路 而是绝路（上）|[【共产党百年真相】系列片：共产主义不是出路 而是绝路（下）
 
-
-  | [【共产党百年真相】系列片：血腥的土改与农村的没落](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [【共产党百年真相】系列片：傅雷之死](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [【共产党百年真相】系列片：共产主义不是出路 而是绝路（下）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [【共产党百年真相】系列片：共产主义不是出路 而是绝路（上）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
 
 
  ### ■ [最新文章](https://github.com/xjy16/BaiNianCCP/blob/master/ArticleList/articleList1.md)
@@ -46,8 +59,10 @@
 
  ### ■ 共产党杀人历史
  
- | [![image](https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
- | --------------- | --------------- | --------------- | --------------- |
+ | [![image](https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image]
+ | :--------------- | :--------------- |
+(https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
+
  | [苏共与德国纳粹的秘密协议](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [苏共暴政下的群体灭绝（下）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [苏共暴政下的群体灭绝（上）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [广西文革中的吃人狂潮（中）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
  
  ### ■ 共产党破坏传统道德
