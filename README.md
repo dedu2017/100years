@@ -7,12 +7,16 @@
 
 
 ### ■ 【百年红祸】特别专题
+
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
-[![xjy549](https://github.com/xjy16/books/blob/master/cover/xjy549.jpg)](https://github.com/xjy16/books/blob/master/N549.zip?raw=true) | [![xjy548](https://github.com/xjy16/books/blob/master/cover/xjy548.jpg)](https://github.com/xjy16/books/blob/master/N548.zip?raw=true)
+[百年红祸1 | 百年红祸2
 
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
-
+| ------------ | ------------- |
+[百年红祸1| 百年红祸4
 
  
  
