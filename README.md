@@ -70,19 +70,20 @@
 
  
  
- | [![image]()]() | [![image]()]() | [![image]()]) | [![image]()](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzlszg1.pdf) | 
- | --------------- | --------------- | --------------- | --------------- |
- | ](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf) | [](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hrtwxbl.pdf) | ](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zbhl.pdf) | ](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzlszg1.pdf) | 
- 
- 
- 
  
  ### ■ 共产党破坏传统道德
  
- | [![image](https://cloud.githubusercontent.com/assets/18081243/24590322/984c05c4-17b0-11e7-9421-892044616c2f.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hrtwxbl.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590326/a7909b62-17b0-11e7-8f55-55231ecbfe8e.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zbhl.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590327/a9285be0-17b0-11e7-9161-43fcb3f97bd2.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzlszg1.pdf) | 
- | --------------- | --------------- | --------------- | --------------- |
- | [中共“批孔”和建孔子学院的闹剧](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf) | [广西文革中骇人听闻的性暴力](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hrtwxbl.pdf) | [砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zbhl.pdf) | [魏谷：孔子、历史和中共（一）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzlszg1.pdf) | 
- 
+<a href="(" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590322/984c05c4-17b0-11e7-9421-892044616c2f.jpg" width="317" height="123"></a> 
+<a href="(" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg" width="317" height="123"></a> 
+| ------------ | ------------- |
+中共“批孔”和建孔子学院的闹剧|[广西文革中骇人听闻的性暴力
+
+<a href="(" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590326/a7909b62-17b0-11e7-8f55-55231ecbfe8e.jpg" width="317" height="123"></a> 
+<a href="(" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590327/a9285be0-17b0-11e7-9161-43fcb3f97bd2.jpg" width="317" height="123"></a> 
+| ------------ | ------------- |
+[砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地]|魏谷：孔子、历史和中共（一）
+
+
  ### ■ 共产党迫害文化精英
  
 | [<img src="https://cloud.githubusercontent.com/assets/18081243/24584568/3034fde8-1737-11e7-964d-849b7599f51d.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ldzyzz.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590366/655ddcfe-17b1-11e7-87cd-b9e29ea40462.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/qjdzy.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590367/655f011a-17b1-11e7-94ff-6c6ffd3b97cf.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wzgyxfx.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590365/655d7674-17b1-11e7-92a6-1841f118c507.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf) |
