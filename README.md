@@ -39,15 +39,15 @@
 
   
 ### ■ 共产党百年真相：特稿
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8354541a257043066.jpg" width="317" height="123"></a>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8318261a331114172.jpg" width="317" height="123"></a>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?816833_2_971&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8354541a257043066.jpg" width="317" height="123"></a>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_922&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8318261a331114172.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
-血腥的土改与农村的没落|傅雷之死
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?816833_2_971&from=apple" target="_blank">血腥的土改与农村的没落</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_922&from=apple" target="_blank">傅雷之死</a>
 
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
+<a href="网址&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
+<a href="网址&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
 | ------------ | ------------- |
-共产主义不是出路 而是绝路（上）|共产主义不是出路 而是绝路（下）
+<a href="网址" target="_blank">共产主义不是出路 而是绝路（上）</a>|<a href="网址" target="_blank">共产主义不是出路 而是绝路（下）</a>
 
 
  ### ■ [最新文章](https://github.com/xjy16/BaiNianCCP/blob/master/ArticleList/articleList1.md)
@@ -67,34 +67,16 @@
 
  ### ■ 共产党杀人历史
  
-<a href="(https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590322/984c05c4-17b0-11e7-9421-892044616c2f.jpg" width="317" height="123"></a> 
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg" width="317" height="123"></a> 
-| ------------ | ------------- |
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf" target="_blank">中共“批孔”和建孔子学院的闹剧</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf" target="_blank">广西文革中骇人听闻的性暴力
- </a>
-
-
-<a href="(https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hrtwxbl.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590326/a7909b62-17b0-11e7-8f55-55231ecbfe8e.jpg" width="317" height="123"></a> 
-<a href="(https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zbhl.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590327/a9285be0-17b0-11e7-9161-43fcb3f97bd2.jpg" width="317" height="123"></a> 
-| ------------ | ------------- |
-[砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地|[魏谷：孔子、历史和中共（一）
-
- 
- 
+| [![image](https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ | [苏共与德国纳粹的秘密协议](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [苏共暴政下的群体灭绝（下）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf) | [苏共暴政下的群体灭绝（上）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [广西文革中的吃人狂潮（中）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
  
  ### ■ 共产党破坏传统道德
  
-<a href="(" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590322/984c05c4-17b0-11e7-9421-892044616c2f.jpg" width="317" height="123"></a> 
-<a href="(" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg" width="317" height="123"></a> 
-| ------------ | ------------- |
-中共“批孔”和建孔子学院的闹剧|[广西文革中骇人听闻的性暴力
-
-<a href="(" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590326/a7909b62-17b0-11e7-8f55-55231ecbfe8e.jpg" width="317" height="123"></a> 
-<a href="(" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590327/a9285be0-17b0-11e7-9161-43fcb3f97bd2.jpg" width="317" height="123"></a> 
-| ------------ | ------------- |
-[砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地]|魏谷：孔子、历史和中共（一）
-
-
+ | [![image](https://cloud.githubusercontent.com/assets/18081243/24590322/984c05c4-17b0-11e7-9421-892044616c2f.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hrtwxbl.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590326/a7909b62-17b0-11e7-8f55-55231ecbfe8e.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zbhl.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590327/a9285be0-17b0-11e7-9161-43fcb3f97bd2.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzlszg1.pdf) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ | [中共“批孔”和建孔子学院的闹剧](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf) | [广西文革中骇人听闻的性暴力](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hrtwxbl.pdf) | [砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zbhl.pdf) | [魏谷：孔子、历史和中共（一）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzlszg1.pdf) | 
+ 
  ### ■ 共产党迫害文化精英
  
 | [<img src="https://cloud.githubusercontent.com/assets/18081243/24584568/3034fde8-1737-11e7-964d-849b7599f51d.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ldzyzz.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590366/655ddcfe-17b1-11e7-87cd-b9e29ea40462.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/qjdzy.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590367/655f011a-17b1-11e7-94ff-6c6ffd3b97cf.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wzgyxfx.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590365/655d7674-17b1-11e7-92a6-1841f118c507.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf) |
