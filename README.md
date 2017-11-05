@@ -173,24 +173,24 @@
 
 ### ■　 【翻墙软件】
 
-**[网门安卓版]**[点击下载最新版](https://raw.githubusercontent.com/ogate/up/master/chrome.apk) 
+[网门安卓版][点击下载最新版](https://raw.githubusercontent.com/ogate/up/master/chrome.apk) 
 
-**[网门电脑版]**[点击下载最新版](https://raw.githttps://raw.githubusercontent.com/ogate/up/master/chrome.zip) 
+[网门电脑版][点击下载最新版](https://raw.githttps://raw.githubusercontent.com/ogate/up/master/chrome.zip) 
 　　　　
-**无界一点通** [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
+无界一点通 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
 
-**新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
+新唐人安卓版 iNTD TV [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
 
 
 【电脑版翻墙软件】  
 
-**自由门** 06月27日发布 自由门7.59版 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
+自由门 06月27日发布 自由门7.59版 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
 
-**无界浏览** 7月10日无界发布16.03版[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
+无界浏览 7月10日无界发布16.03版[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
-## ■ 友好链接**
+## ■ 友好链接
 
-[网门oGate](https://git.io/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)| [ 神韵:中国古典舞](https://github.com/dedu2017/gettruth/blob/master/README.md)| 
+[网门oGate](https://git.io/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)| [ 神韵:中国古典舞](https://github.com/dedu2017/gettruth/blob/master/README.md)|  [ 翻越红墙！](https://github.com/dedu2017/xw/blob/master/README.md)
 
 QQ或360浏览器流氓拦截请放行。
 
