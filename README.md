@@ -107,33 +107,60 @@
 
 ### ■ 共产党窜改历史
 
-<a href="地址1" target="_blank"><img src="图片1" width="317" height="123"></a>
-<a href="地址2" target="_blank"><img src="图片2" width="317" height="123"></a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zjjj.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590497/d0e23a04-17b3-11e7-8602-4a94920a9ef5.jpg" width="317" height="123"></a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sb56.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590495/d0e16d36-17b3-11e7-9952-c15d04917ebe.jpg" width="317" height="123"></a>
+| --------------- | --------------- |
+ | [林辉：造假的江姐受刑与《红岩》作者自杀](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zjjj.pdf) | <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sb56.pdf" target="view_window">林辉：山本五十六座机被击落与中美合作所</a> |
  
- | [![image](https://cloud.githubusercontent.com/assets/18081243/24590497/d0e23a04-17b3-11e7-8602-4a94920a9ef5.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zjjj.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590495/d0e16d36-17b3-11e7-9952-c15d04917ebe.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sb56.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590498/d0e29486-17b3-11e7-96a8-c3e025ba0249.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/djhhj.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590496/d0e194d2-17b3-11e7-8568-53145a296bad.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zsdcr.pdf) | 
- | --------------- | --------------- | --------------- | --------------- |
- | [林辉：造假的江姐受刑与《红岩》作者自杀](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zjjj.pdf) | <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sb56.pdf" target="view_window">林辉：山本五十六座机被击落与中美合作所</a> | [李宇明：大饥荒时期的红色画家](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/djhhj.pdf) | [林辉：真实的董存瑞与同名电影主角的遭遇](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zsdcr.pdf) |
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/djhhj.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590498/d0e29486-17b3-11e7-96a8-c3e025ba0249.jpg" width="317" height="123"></a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zsdcr.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590496/d0e194d2-17b3-11e7-8568-53145a296bad.jpg" width="317" height="123"></a>
+ | --------------- | --------------- |
+ [李宇明：大饥荒时期的红色画家](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/djhhj.pdf) | [林辉：真实的董存瑞与同名电影主角的遭遇](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zsdcr.pdf) |
 
 ### ■ 共产党卖国
 
-<a href="地址1" target="_blank"><img src="图片1" width="317" height="123"></a>
-<a href="地址2" target="_blank"><img src="图片2" width="317" height="123"></a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz2.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590526/37a7deec-17b4-11e7-813a-97f702fc6da6.jpg" width="317" height="123"></a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz1.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590527/37a8ca82-17b4-11e7-8706-36b888ee68d0.jpg" width="317" height="123"></a>
+ | --------------- | --------------- |
+ [中国人应知的重要事—中共七宗罪(下)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz2.pdf) | [中国人应知的重要事—中共七宗罪(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz1.pdf) | 
  
- | [![image](https://cloud.githubusercontent.com/assets/18081243/24590526/37a7deec-17b4-11e7-813a-97f702fc6da6.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz2.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590527/37a8ca82-17b4-11e7-8706-36b888ee68d0.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz1.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590529/37ac61ba-17b4-11e7-9bd5-303e7de63886.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqpc.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590528/37a9f0f6-17b4-11e7-8223-021777d5049c.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gxrbqh.pdf) | 
- | --------------- | --------------- | --------------- | --------------- |
- | [中国人应知的重要事—中共七宗罪(下)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz2.pdf) | [中国人应知的重要事—中共七宗罪(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz1.pdf) | [毛泽东周恩来放弃日本巨额战争赔偿内幕](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqpc.pdf) | [毛泽东至少六次感谢日本侵华 官方记载成铁证](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gxrbqh.pdf) |
+ <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqpc.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590529/37ac61ba-17b4-11e7-9bd5-303e7de63886.jpg" width="317" height="123"></a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gxrbqh.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590528/37a9f0f6-17b4-11e7-8223-021777d5049c.jpg" width="317" height="123"></a>
+ | --------------- | --------------- |
+ |[毛泽东周恩来放弃日本巨额战争赔偿内幕](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqpc.pdf) | [毛泽东至少六次感谢日本侵华 官方记载成铁证](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gxrbqh.pdf) |
+ 
+
 
 ### ■ 共产党党魁面目
+
+<a href="1" target="_blank"><img src=ＪＰ1" width="317" height="123"></a>
+<a href="2" target="_blank"><img src="JP2" width="317" height="123"></a>
+ | --------------- | --------------- |
+ | [周晓辉：从金正男被毒杀看共产党暗杀历史(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/jznds1.pdf) | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(下)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm2.pdf) |
+ 
+ 
+<a href="1" target="_blank"><img src=ＪＰ1" width="317" height="123"></a>
+<a href="2" target="_blank"><img src="JP2" width="317" height="123"></a>
+ | --------------- | --------------- |
+| [毛泽东一句话 马来西亚共产党陷斗争绝境](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/mlxydzjj.pdf) | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm1.pdf) |
+ 
  
  | [![image](https://cloud.githubusercontent.com/assets/18081243/24590543/76ec4c14-17b4-11e7-82f2-45692489cb7b.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/jznds1.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm2.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590544/76ef1354-17b4-11e7-8670-64f9dc6c5c0a.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/mlxydzjj.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm1.pdf) | 
- | --------------- | --------------- | --------------- | --------------- |
- | [周晓辉：从金正男被毒杀看共产党暗杀历史(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/jznds1.pdf) | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(下)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm2.pdf) | [毛泽东一句话 马来西亚共产党陷斗争绝境](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/mlxydzjj.pdf) | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm1.pdf) |
+ | --------------- | ---------------  
 
 ### ■ 共产党摧毁经济
+ <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gczybscl.pdf" target="_blank"><img src=https://cloud.githubusercontent.com/assets/18081243/24590587/0e5e6276-17b5-11e7-8fe0-6ac97790f8a7.jpg" width="317" height="123"></a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/bytslk.pdf" target="_blank"><img 
+src="https://cloud.githubusercontent.com/assets/18081243/24590585/0e5bd286-17b5-11e7-9374-a2c9f4627c6c.jpg" width="317" height="123"></a>
+ | --------------- | --------------- |
+ | [【特稿】共产主义不是出路而是绝路](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gczybscl.pdf) | [【乱象剖析】白衣“天使”的冷酷](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/bytslk.pdf) | 
  
- | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590587/0e5e6276-17b5-11e7-8fe0-6ac97790f8a7.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gczybscl.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590585/0e5bd286-17b5-11e7-9374-a2c9f4627c6c.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/bytslk.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590586/0e5dc460-17b5-11e7-9437-a4dea2703900.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/lnbg.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590588/0e6043fc-17b5-11e7-99d0-c926e6f3a9c4.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ydspfl.pdf) | 
- | --------------- | --------------- | --------------- | --------------- |
- | [【特稿】共产主义不是出路而是绝路](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gczybscl.pdf) | [【乱象剖析】白衣“天使”的冷酷](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/bytslk.pdf) | [【乱象剖析】老年悲歌 痛在夕阳](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/lnbg.pdf) | 【[乱象剖析】有毒食品泛滥 民以何为食](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ydspfl.pdf) |
+ <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/lnbg.pdf" target="_blank"><img src=https://cloud.githubusercontent.com/assets/18081243/24590586/0e5dc460-17b5-11e7-9437-a4dea2703900.jpg" width="317" height="123"></a>
+<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ydspfl.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590588/0e6043fc-17b5-11e7-99d0-c926e6f3a9c4.jpg" width="317" height="123"></a>
+ | --------------- | --------------- |
+ |[【乱象剖析】老年悲歌 痛在夕阳](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/lnbg.pdf) | 【[乱象剖析】有毒食品泛滥 民以何为食](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ydspfl.pdf) |
+ 
+ 
  
 ### ■ 更多精彩请访问「网门」，点击图片可直达
 <a href="http://rong.yov.li/?from=apple&tag=5258" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg"></a>
