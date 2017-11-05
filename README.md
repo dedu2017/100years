@@ -3,7 +3,7 @@
    ✪ 本站永久网址  https://git.io/bnhh 网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 
   
 
-<a href="http://rong.yov.li/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh.jpg" ></a>
+a href="http://rong.yov.li/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh.jpg" width="640" height="123"></a>
 
 
 ### ■ 【百年红祸】特别专题（点击图片可直达）
@@ -129,41 +129,11 @@
  | --------------- | --------------- |
  |[毛泽东周恩来放弃日本巨额战争赔偿内幕](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqpc.pdf) | [毛泽东至少六次感谢日本侵华 官方记载成铁证](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gxrbqh.pdf) |
  
-
-
-### ■ 共产党党魁面目
-
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/jznds1.pdf" target="_blank"><img src=https://cloud.githubusercontent.com/assets/18081243/24590543/76ec4c14-17b4-11e7-82f2-45692489cb7b.jpg" width="317" height="123"></a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/mlxydzjj.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg" width="317" height="123"></a>
- | --------------- | --------------- |
- | [周晓辉：从金正男被毒杀看共产党暗杀历史(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/jznds1.pdf) | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(下)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm2.pdf) |
- 
- 
-<a href="1" target="_blank"><img src=ＪＰ1" width="317" height="123"></a>
-<a href="2" target="_blank"><img src=ＪＰ2" width="317" height="123"></a>
- | --------------- | --------------- |
-| [毛泽东一句话 马来西亚共产党陷斗争绝境]() | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm1.pdf) |
- 
- 
- | [![image]()]() | [<img src="" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm2.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590544/76ef1354-17b4-11e7-8670-64f9dc6c5c0a.jpg)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/mlxydzjj.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg" width="300" height="123">](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zelzmm1.pdf) | 
- | --------------- | ---------------  
-
-### ■ 共产党摧毁经济
- <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gczybscl.pdf" target="_blank"><img src=https://cloud.githubusercontent.com/assets/18081243/24590587/0e5e6276-17b5-11e7-8fe0-6ac97790f8a7.jpg" width="317" height="123"></a>
- <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/bytslk.pdf" target="_blank"><img 
-src="https://cloud.githubusercontent.com/assets/18081243/24590585/0e5bd286-17b5-11e7-9374-a2c9f4627c6c.jpg" width="317" height="123"></a>
- | --------------- | --------------- |
- | [【特稿】共产主义不是出路而是绝路](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gczybscl.pdf) | [【乱象剖析】白衣“天使”的冷酷](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/bytslk.pdf) | 
- 
- <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/lnbg.pdf" target="_blank"><img src=https://cloud.githubusercontent.com/assets/18081243/24590586/0e5dc460-17b5-11e7-9437-a4dea2703900.jpg" width="317" height="123"></a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ydspfl.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590588/0e6043fc-17b5-11e7-99d0-c926e6f3a9c4.jpg" width="317" height="123"></a>
- | --------------- | --------------- |
- |[【乱象剖析】老年悲歌 痛在夕阳](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/lnbg.pdf) | 【[乱象剖析】有毒食品泛滥 民以何为食](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ydspfl.pdf) |
- 
  
  
 ### ■ 更多精彩请访问「网门」，点击图片可直达
-<a href="http://rong.yov.li/?from=apple&tag=5258" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg"></a>
+a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="640" height="123"></a>
+
 
 ### ■　打开天窗,听一听外面的声音...
    <td align=center>  
@@ -195,6 +165,12 @@ src="https://cloud.githubusercontent.com/assets/18081243/24590585/0e5bd286-17b5-
    </tr>
   <tr>
 
+### ■ 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
+✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp; 
+[【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
+
+<a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="317"  height="91"></a>
+<a href="https://git.io/fgp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8962833/542b236c-35f7-11e5-9b6b-5ecef4e6a46e.jpg" width="317"  height="91"></a>
 
 ### ■　 【翻墙软件】
 
