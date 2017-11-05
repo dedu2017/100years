@@ -8,25 +8,34 @@
 
 ### ■ 【百年红祸】特别专题（点击图片可直达）
 
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1051&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
-百年红祸第一集| 百年红祸第二集
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1051&from=apple" target="_blank">百年红祸第一集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"> 百年红祸第二集</a>
 
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
-| ------------ | ------------- |
-百年红祸第五集|百年红祸第六集
 
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_1086&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
-百年红祸第七集|百年红祸第八集
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_1086&from=apple" target="_blank">百年红祸第三集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"> 百年红祸第四集</a>
 
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+
+<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c816833_2_1126&from=applee" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c816833_2_1145&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
-百年红祸第九集|百年红祸第十集
+<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c816833_2_1126&from=apple" target="_blank">百年红祸第五集集</a>|<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c816833_2_1145&from=apple" target="_blank"> 百年红祸第六集</a>
+
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1159&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_1200&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+| ------------ | ------------- |
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1159&from=apple" target="_blank">百年红祸第七集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_1200&from=apple" target="_blank"> 百年红祸第八集</a>
+
+
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_1222&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c816833_2_1235&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+| ------------ | ------------- |
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_1222&from=apple" target="_blank">百年红祸第九集</a>|<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c816833_2_1235&from=apple" target="_blank">百年红祸第十集</a>
+
 
   
 ### ■ 共产党百年真相：特稿
