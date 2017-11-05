@@ -2,8 +2,7 @@
 
    ✪ 本站永久网址  https://git.io/bnhh 网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 
   
-
-a href="http://rong.yov.li/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh.jpg" width="640" height="123"></a>
+<a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh.jpg" width="640" height="123"></a>
 
 
 ### ■ 【百年红祸】特别专题（点击图片可直达）
@@ -132,7 +131,7 @@ a href="http://rong.yov.li/?c816833&from=apple&tag=578" target="_blank"><img src
  
  
 ### ■ 更多精彩请访问「网门」，点击图片可直达
-a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="640" height="123"></a>
+<a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="640" height="123"></a>
 
 
 ### ■　打开天窗,听一听外面的声音...
