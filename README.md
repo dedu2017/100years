@@ -63,10 +63,8 @@
 | ------------ | ------------- |
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf" target="_blank">中共“批孔”和建孔子学院的闹剧</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf" target="_blank">广西文革中骇人听闻的性暴力
  </a>
-| --------------- | --------------- |
 
 
--------------------------------------
 <a href="(https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hrtwxbl.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590326/a7909b62-17b0-11e7-8f55-55231ecbfe8e.jpg" width="317" height="123"></a> 
 <a href="(https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zbhl.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590327/a9285be0-17b0-11e7-9161-43fcb3f97bd2.jpg" width="317" height="123"></a> 
 | ------------ | ------------- |
