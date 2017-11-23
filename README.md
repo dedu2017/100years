@@ -1,9 +1,23 @@
- ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a> 欢迎来到：揭秘百年红祸 
+ ##</a> 欢迎来到：揭秘百年红祸 
 
    ✪ 本站永久网址  https://git.io/100 　网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 
        
-<a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100.gif" ></a>
-
+<a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100-2.gif" ></a>
+ <tr>
+    <td align=center>请尝试不同入口，进入动态网址<br/>
+      <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=oGate">入口</a>
+      <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?from=oGate">入口</a>
+      <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=oGate">入口</a><br/>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=oGate">入口</a>
+      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=oGate">入口</a>
+      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=oGate">入口</a><br/>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=oGate">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?from=oGate">入口</a>
+      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=oGate">入口</a><br/>
+      微信如提示停止访问该网页，须<br/>
+      先点击右上角，选择浏览器打开<br/>
+    </td>
+  </tr>
 
 ### ■ 【百年红祸】特别专题（点击图片可直达）
 
