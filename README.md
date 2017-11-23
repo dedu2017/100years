@@ -5,21 +5,20 @@
 <a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100-2.gif" ></a>
  <tr>
     <td align=center>请尝试不同入口，进入动态网址<br/>
-      <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm??c816833&from=apple&tag=5788">入口</a>
-      <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm??c816833&from=apple&tag=5748">入口</a>
-      <a href="https://s3.amazonaws.com/ogate/oGate.htm??c816833&from=apple&tag=5778">入口</a><br/>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm??c816833&from=apple&tag=5478">入口</a>
-      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm??c816833&from=apple&tag=5678">入口</a>
-      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm??c816833&from=apple&tag=5718">入口</a><br/>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm??c816833&from=apple&tag=54780">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm??c816833&from=apple&tag=2578">入口</a>
-      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm??c816833&from=apple&tag=6578">入口</a><br/>
+      <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm??c816833&from=apple&tag=5788">入口一</a>
+      <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm??c816833&from=apple&tag=5748">入口二</a>
+      <a href="https://s3.amazonaws.com/ogate/oGate.htm??c816833&from=apple&tag=5778">入口三</a><br/>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm??c816833&from=apple&tag=5478">入口四</a>
+      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm??c816833&from=apple&tag=5678">入口五</a>
+      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm??c816833&from=apple&tag=5718">入口六</a><br/>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm??c816833&from=apple&tag=54780">入口七</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm??c816833&from=apple&tag=2578">入口八</a>
+      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm??c816833&from=apple&tag=6578">入口九</a><br/>
       微信如提示停止访问该网页，须先点击右上角，选择浏览器打开
     </td>
   </tr>
 
 ### ■ 【百年红祸】特别专题（点击图片可直达）
-<a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100.gif" ></a>
 
 <a href="https://s3-us-west-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1051&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 <a href="https:/s3.us-east-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
@@ -54,6 +53,9 @@
 
 
  ### ■ [最新文章](https://s3.amazonaws.com/ogate/oGate.htm?c816833&from=apple)
+ 
+ <a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100.gif" ></a>
+ 
 [![zxwz](https://cloud.githubusercontent.com/assets/20497750/25068841/1b727a8a-2235-11e7-95a4-e7829cc79da5.png)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zxwz-0415.pdf)
 
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zftg.pdf" target="_blank">丁抒：执政初期的镇反与土改阳谋</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wgzs.pdf" target="_blank">组图：文革中自杀的留美归国科学家</a>
