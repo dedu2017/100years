@@ -1,9 +1,8 @@
  ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a> 欢迎来到：揭秘百年红祸 
 
    ✪ 本站永久网址  https://git.io/100 　网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 
-   
-      
-<a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100.gif" width="640" height="123"></a>
+       
+<a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100.gif" ></a>
 
 
 ### ■ 【百年红祸】特别专题（点击图片可直达）
