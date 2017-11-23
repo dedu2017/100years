@@ -1,53 +1,54 @@
- ##</a> 欢迎来到：揭秘百年红祸 
+## ■ 欢迎来到：揭秘百年红祸 
 
    ✪ 本站永久网址  https://git.io/100 　网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 
        
 <a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100-2.gif" ></a>
  <tr>
     <td align=center>请尝试不同入口，进入动态网址<br/>
-      <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=oGate">入口</a>
-      <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?from=oGate">入口</a>
-      <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=oGate">入口</a><br/>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=oGate">入口</a>
-      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=oGate">入口</a>
-      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=oGate">入口</a><br/>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=oGate">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?from=oGate">入口</a>
-      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=oGate">入口</a><br/>
-      微信如提示停止访问该网页，须<br/>
-      先点击右上角，选择浏览器打开<br/>
+      <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm??c816833&from=apple&tag=5788">入口</a>
+      <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm??c816833&from=apple&tag=5748">入口</a>
+      <a href="https://s3.amazonaws.com/ogate/oGate.htm??c816833&from=apple&tag=5778">入口</a><br/>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm??c816833&from=apple&tag=5478">入口</a>
+      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm??c816833&from=apple&tag=5678">入口</a>
+      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm??c816833&from=apple&tag=5718">入口</a><br/>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm??c816833&from=apple&tag=54780">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm??c816833&from=apple&tag=2578">入口</a>
+      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm??c816833&from=apple&tag=6578">入口</a><br/>
+      微信如提示停止访问该网页，须先点击右上角，选择浏览器打开
     </td>
   </tr>
 
 ### ■ 【百年红祸】特别专题（点击图片可直达）
+<a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100.gif" ></a>
 
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1051&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+<a href="https://s3-us-west-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1051&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
+<a href="https:/s3.us-east-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_1&from=apple" target="_blank">百年红祸第一集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_2&from=apple" target="_blank"> 百年红祸第二集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_1&from=apple" target="_blank">百年红祸第一集</a>|<a href="https://s3.ca-central-1.amazonaws.com/ogates/oGate.htm?c837862_1_2&from=apple" target="_blank"> 百年红祸第二集</a>
 
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_3&from=apple" target="_blank">百年红祸第三集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_4&from=apple" target="_blank"> 百年红祸第四集</a>
 
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_5&from=apple" target="_blank">百年红祸第五集集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_6&from=apple" target="_blank"> 百年红祸第六集</a>
+<a href="s3.ca-central-1.amazonaws.comm/ogates/oGate.htm?c837862_1_5&from=apple" target="_blank">百年红祸第五集集</a>|<a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_1_6&from=apple" target="_blank"> 百年红祸第六集</a>
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_7&from=apple" target="_blank">百年红祸第七集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_8&from=apple" target="_blank"> 百年红祸第八集</a>
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_9&from=apple" target="_blank">百年红祸第九集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_10&from=apple" target="_blank">百年红祸第十集</a>
 
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_11&from=apple" target="_blank">百年红祸第十一集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_12&from=apple" target="_blank">百年红祸第十二集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_11&from=apple" target="_blank">百年红祸第十一集</a>|<a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_1_12&from=apple" target="_blank">百年红祸第十二集</a>
 
- <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_13&from=apple" target="_blank">百年红祸第十三集</a>|
+ <a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_1_13&from=apple" target="_blank">百年红祸第十三集</a>|
 
  
 ### ■ 共产党百年真相：特稿
+
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?816833_2_971&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8354541a257043066.jpg" width="317" height="123"></a>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_922&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8318261a331114172.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?816833_2_971&from=apple" target="_blank">血腥的土改与农村的没落</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_922&from=apple" target="_blank">傅雷之死</a>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?816833_2_971&from=apple" target="_blank">血腥的土改与农村的没落</a>|<a href="https://s3.eu-west-2.amazonaws.com/ogate/oGate.htm?c816833_2_922&from=apple" target="_blank">傅雷之死</a>
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_901&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_900&from=apple&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
+<a href="hhttps://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c816833_2_900&from=apple&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
 | ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_901&from=apple" target="_blank">共产主义不是出路 而是绝路（上）</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_900&from=apple" target="_blank">共产主义不是出路 而是绝路（下）</a>
 
