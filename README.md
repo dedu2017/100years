@@ -22,7 +22,7 @@
     </td>
   </tr>
 
-## ■ <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>【百年红祸】特别专题（点击图片可直达）
+##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>【百年红祸】特别专题（点击图片可直达）
 ---------------------------------------------------------
 <a href="https://s3-us-west-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1051&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 <a href="https:/s3.us-east-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
@@ -46,7 +46,7 @@
  <a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_1_13&from=apple" target="_blank">百年红祸第十三集</a>|
 
  
-## ■ <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党百年真相：特稿   
+##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党百年真相：特稿   
 
 --------------------------------------------------
 
@@ -61,7 +61,7 @@
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_901&from=apple" target="_blank">共产主义不是出路 而是绝路（上）</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_900&from=apple" target="_blank">共产主义不是出路 而是绝路（下）</a>
 
 
-### ■ <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> [最新文章]（点击图片可直达）
+### <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> [最新文章]（点击图片可直达）
  
  
 ---------------------------------------------------------
@@ -81,7 +81,7 @@
  <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf" target="_blank">中国漫画开拓者丰子恺的文革遭遇</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/mdhd.pdf" target="_blank">末代皇帝文革中连病带吓而死 族人被抄家</a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc1.pdf" target="_blank">广西文革中的吃人狂潮（上）</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqml.pdf" target="_blank">林辉：放弃马列的陈独秀与其逃港的女儿</a>
 
-### ■ <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党杀人历史
+###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党杀人历史
 
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg" width="317" height="123"></a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg" width="317" height="123"></a>
@@ -96,7 +96,7 @@
 
 
  
-### ■ <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产党破坏传统道德
+###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产党破坏传统道德
 
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590322/984c05c4-17b0-11e7-9421-892044616c2f.jpg" width="317" height="123"></a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hrtwxbl.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg" width="317" height="123"></a>
@@ -108,7 +108,7 @@
  | --------------- | --------------- | 
  | [砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zbhl.pdf) | [魏谷：孔子、历史和中共（一）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzlszg1.pdf) | 
  
-### ■ <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党迫害文化精英
+###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党迫害文化精英
  
  <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ldzyzz.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24584568/3034fde8-1737-11e7-964d-849b7599f51d.jpg" width="317" height="123"></a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/qjdzy.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590366/655ddcfe-17b1-11e7-87cd-b9e29ea40462.jpg" width="317" height="123"></a>
@@ -121,7 +121,7 @@
  | --------------- | ---------------  | 
  |[吴祖光与新凤霞——文艺伉俪的人生磨难](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wzgyxfx.pdf) | [中国漫画开拓者丰子恺的文革遭遇](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf) |
 
-### ■ <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产党窜改历史
+###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产党窜改历史
 
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zjjj.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590497/d0e23a04-17b3-11e7-8602-4a94920a9ef5.jpg" width="317" height="123"></a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sb56.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590495/d0e16d36-17b3-11e7-9952-c15d04917ebe.jpg" width="317" height="123"></a>
@@ -133,7 +133,7 @@
  | --------------- | --------------- |
  [李宇明：大饥荒时期的红色画家](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/djhhj.pdf) | [林辉：真实的董存瑞与同名电影主角的遭遇](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zsdcr.pdf) |
 
-### ■ <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党卖国
+###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党卖国
 
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz2.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590526/37a7deec-17b4-11e7-813a-97f702fc6da6.jpg" width="317" height="123"></a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz1.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590527/37a8ca82-17b4-11e7-8706-36b888ee68d0.jpg" width="317" height="123"></a>
@@ -147,11 +147,11 @@
  
  
  
-### ■ <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 更多精彩请访问「网门」，点击图片可直达
+###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 更多精彩请访问「网门」，点击图片可直达
 <a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="640" height="123"></a>
 
 
-### ■ <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>　打开天窗,听一听外面的声音...
+###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>　打开天窗,听一听外面的声音...
    <td align=center>  
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816850&from=apple">✪今日点击...........全球华语最热脱口秀</a><br/>
   </tr>
