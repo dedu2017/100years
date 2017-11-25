@@ -24,10 +24,13 @@
 
 ### ■ 【百年红祸】特别专题（点击图片可直达）
 
+---------------------------------------------------------
 <a href="https://s3-us-west-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1051&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 <a href="https:/s3.us-east-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_1&from=apple" target="_blank">百年红祸第一集</a>|<a href="https://s3.ca-central-1.amazonaws.com/ogates/oGate.htm?c837862_1_2&from=apple" target="_blank"> 百年红祸第二集</a>
+
+
 <a href="https://s3-us-west-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1051&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 <a href="https:/s3.us-east-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
@@ -44,8 +47,9 @@
  <a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_1_13&from=apple" target="_blank">百年红祸第十三集</a>|
 
  
-### ■ 共产党百年真相：特稿                           更多
-------------------------------------------------------------------------------------------------------------------
+### ■ 共产党百年真相：特稿   
+
+--------------------------------------------------
 
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?816833_2_971&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8354541a257043066.jpg" width="317" height="123"></a>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_922&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8318261a331114172.jpg" width="317" height="123"></a>
@@ -59,6 +63,9 @@
 
 
  ### ■ [最新文章]（点击图片可直达）
+ 
+ 
+---------------------------------------------------------
 
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100.gif" width="650" ></a>
  
