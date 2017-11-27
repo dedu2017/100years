@@ -61,6 +61,14 @@
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_901&from=apple" target="_blank">共产主义不是出路 而是绝路（上）</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_900&from=apple" target="_blank">共产主义不是出路 而是绝路（下）</a>
 
 
+##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产主义的终极目的
+
+ <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/0.jpeg" width="650" ></a>
+
+---------------------------------------------------------
+
+
+
 ### <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> [最新文章]（点击图片可直达）
  
  
