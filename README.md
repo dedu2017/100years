@@ -16,6 +16,7 @@
       微信如提示停止访问该网页，须先点击右上角，选择浏览器打开
     </td>
   </tr>
+------------------------------------
  
   从第一个共产政权苏俄出现到今天，整整一百年过去了。在短短一个世纪的时间里，共产主义造成了上亿人的死亡。共产党从一开始就亮出了与神争夺人类的旗帜，喊出“从来就没有什么救世主”，要把“旧世界打个落花流水”。
 
@@ -63,7 +64,6 @@
 音频下载 [（一）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NTZfR2RoOEY?session_id=1482584641471816008&inline=0) [（二）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NThfWU8zV1g?session_id=1482584641471816008&inline=0)  [TXT电子书点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
 <a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100-2.gif" width="650" ></a>
 
-
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>【百年红祸】特别专题（点击图片可直达）
 
 <a href="https://s3-us-west-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1051&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
@@ -108,12 +108,10 @@
 | ------------ | ------------- |
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_2&from=apple" target="_blank">四千万人為何饿死：大跃进</a>|<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c837862_1_1&from=apple" target="_blank">消灭民营资本家的「五反」</a>
 
-
 ## <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> [最新文章]（点击图片可直达）
 
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100.gif" width="650" ></a>
  
-
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zftg.pdf" target="_blank">丁抒：执政初期的镇反与土改阳谋</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wgzs.pdf" target="_blank">组图：文革中自杀的留美归国科学家</a>
 | --------------- | --------------- |
 | <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wgdzh2.pdf" target="_blank">王友琴：文革“斗争会”（下）</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf" target="_blank">苏共与德国纳粹的秘密协议</a> |
@@ -220,7 +218,6 @@
   <tr>
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
-
 ✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp; 
 [【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
 
@@ -232,50 +229,29 @@
 【电脑版翻墙软件】  看动态网，晓天下事！
 
 **自由门** 自由门7.61版（5月12日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
-
 **无界浏览** 2017-11月12日无界发布17.04[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
-
 **无界火狐扩展**  2017-11-01 更新 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u1703.xpi)
-
-浏览器下载后用鼠标拉到火狐浏览器，点击“安装”。安装后，点击火狐右上角的无界图标，点击开关即可开启或关闭。 连接成功后，无界图标变成彩色。支持Windows, Mac, Linux, 32/64
-
 **爱博电视**  IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iPPOTV.rar)
 
 【安卓版翻墙软件】
 
 【★推荐★】**无界一点通**安卓版的翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
-
 10月18日无界发布安卓版4.1 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
-
 **新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
-
 **网门安卓版** 
-
 下载地址[网门安卓版](https://git.io/ogatea2)
-
-神州正道安卓版 看视频速度很快的。
-
 下载地址[神州正道安卓版](https://git.io/vQjqe)
 ------------------------------------------------------------
-
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://raw.githubusercontent.com/osurf/up/master/tu3.gif" width="650" ></a>
 
-
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 快退出共产党、共青团、少先队，保平安！
-
 进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
 [提交网址1](http://rong.yov.li/?ogQuit.aspx&from=apple&tag=5478) 
-
 [提交网址2](https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478) 
 
-
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 友好链接
-
 [网门oGate](https://git.io/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)| [ 神韵:中国古典舞](https://github.com/dedu2017/gettruth/blob/master/README.md)|  [ 翻越红墙！](https://github.com/dedu2017/xw/blob/master/README.md)
 
 QQ或360浏览器流氓拦截请放行。
-
-
-
