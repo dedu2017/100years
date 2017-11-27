@@ -242,9 +242,7 @@
 
 **新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
 
-**网门安卓版** 
-下载地址[网门安卓版](https://git.io/ogatea2)
-下载地址[神州正道安卓版](https://git.io/vQjqe)
+**网门安卓版** 下载地址[网门安卓版](https://git.io/ogatea2) 下载地址[神州正道安卓版](https://git.io/vQjqe)
 ------------------------------------------------------------
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://raw.githubusercontent.com/osurf/up/master/tu3.gif" width="650" ></a>
 
