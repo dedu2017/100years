@@ -35,7 +35,7 @@
 | ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_3&from=apple" target="_blank">百年红祸第三集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_4&from=apple" target="_blank"> 百年红祸第四集</a>
 
-<a href="s3.ca-central-1.amazonaws.comm/ogates/oGate.htm?c837862_1_5&from=apple" target="_blank">百年红祸第五集集</a>|<a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_1_6&from=apple" target="_blank"> 百年红祸第六集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_5&from=apple" target="_blank">百年红祸第五集集</a>|<a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_1_6&from=apple" target="_blank"> 百年红祸第六集</a>
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_7&from=apple" target="_blank">百年红祸第七集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_8&from=apple" target="_blank"> 百年红祸第八集</a>
 
@@ -43,7 +43,7 @@
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_11&from=apple" target="_blank">百年红祸第十一集</a>|<a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_1_12&from=apple" target="_blank">百年红祸第十二集</a>
 
- <a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_1_13&from=apple" target="_blank">百年红祸第十三集</a>|
+ <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_13&from=apple" target="_blank">百年红祸第十三集</a>|<a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_2_14&from=apple" target="_blank">百年红祸第十四集</a>
 
  
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党百年真相：特稿   
