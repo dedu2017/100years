@@ -47,6 +47,20 @@
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_7&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (五)</a>
 
+##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> TXT电子书下载
+
+***九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip)
+**解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jtdwh.zip)
+**江泽民其人** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jqr.zip)
+**风雨天地行** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_fytdx.zip)
+**绝处逢生** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
+
+【九评共产党】 [在线播放](https://git.io/tv123) [高速下载](https://mega.nz/#F!Z94yBTbb!CV0DrfTCPTQr9P2NYR_row)
+
+【绝处逢生】
+各种人罹患顽疾和绝症的悲凉故事，可是他们因各种因缘际遇，都得以绝处逢生。愿被病痛逼到绝路上的朋友，能够受益，给自己的人生重新敞开希望的大门。
+
+音频下载 [（一）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NTZfR2RoOEY?session_id=1482584641471816008&inline=0) [（二）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NThfWU8zV1g?session_id=1482584641471816008&inline=0)  [TXT电子书点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
 <a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100-2.gif" width="650" ></a>
 
 
@@ -172,22 +186,6 @@
  | --------------- | --------------- |
  |[毛泽东周恩来放弃日本巨额战争赔偿内幕](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqpc.pdf) | [毛泽东至少六次感谢日本侵华 官方记载成铁证](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gxrbqh.pdf) |
  
-##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> TXT电子书下载
-
-***九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip)
-**解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jtdwh.zip)
-**江泽民其人** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jqr.zip)
-**风雨天地行** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_fytdx.zip)
-**绝处逢生** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
-
-【九评共产党】 [在线播放](https://git.io/tv123) [高速下载](https://mega.nz/#F!Z94yBTbb!CV0DrfTCPTQr9P2NYR_row)
-
-【绝处逢生】
-各种人罹患顽疾和绝症的悲凉故事，可是他们因各种因缘际遇，都得以绝处逢生。愿被病痛逼到绝路上的朋友，能够受益，给自己的人生重新敞开希望的大门。
-
-音频下载 [（一）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NTZfR2RoOEY?session_id=1482584641471816008&inline=0) [（二）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NThfWU8zV1g?session_id=1482584641471816008&inline=0)  [TXT电子书点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
-
-
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 更多精彩请访问「网门」，点击图片可直达
 
 <a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="640" height="123"></a>
