@@ -73,8 +73,43 @@
 
 
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (三)</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (四)</a>
-
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_7&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (五)</a>
+
+##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>百年红祸
+---------------------------------------------------------
+
+
+
+<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_18&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E6%83%A8%E7%BB%9D%E4%BA%BA%E7%8E%AF%E7%9A%84%E9%81%93%E5%8E%BF%E5%B1%A0%E6%9D%80.jpg" width="317" height="123"></a>
+
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_14&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E4%BA%BA%E5%90%83%E4%BA%BA%E6%80%8E%E9%BA%BC%E6%9D%A5%E7%9A%84%20%E5%90%83%E4%BA%BA%E7%8B%82%E6%BD%AE%E7%9A%84%E5%BF%83%E7%90%86%E6%BC%94%E5%8F%98.jpg" width="317" height="123"></a>
+| ------------ | ------------- |
+<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_18&from=apple" target="_blank">惨绝人环的道县屠杀</a>|
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_14&from=apple" target="_blank">人吃人怎麼来的 吃人狂潮的心理演变</a>
+
+
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_9&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E3%80%8C%E4%B8%80%E5%89%AF%E5%AF%B9%E8%81%94%E3%80%8D%E5%BC%95%E5%8F%91%E7%9A%84%E5%B1%A0%E6%9D%80.jpg" width="317" height="123"></a>
+
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_7&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E8%82%83%E5%8F%8D%E5%A4%A7%E8%B7%83%E8%BF%9B%20%E6%8C%89%E8%AE%A1%E5%88%92%E6%8C%87%E6%A0%87%E6%8A%93%E4%BA%BA%E6%9D%80%E4%BA%BA.jpg" width="317" height="123"></a>
+| ------------ | ------------- |
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_9&from=apple" target="_blank">「一副对联」引发的屠杀</a>|
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_7&from=apple" target="_blank">肃反大跃进 按计划指标抓人杀人</a>
+
+
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_6&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E7%BC%84%E5%8F%A3%E8%AF%9B%E5%BF%83%20%E7%9F%A5%E8%AF%86%E4%BB%BD%E5%AD%90%E7%9A%84%E3%80%8C%E5%8F%8D%E5%8F%B3%E3%80%8D%E5%8A%AB.jpg" width="317" height="123"></a>
+
+<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_4&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E9%A3%A2%E9%A5%BF%E7%9A%84%E9%81%AE%E7%BE%9E%E5%B8%83%EF%BC%9A%E4%BA%8C%E5%8F%B7%E7%97%85.jpg" width="317" height="123"></a>
+| ------------ | ------------- |
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_6&from=apple" target="_blank">缄口诛心 知识份子的「反右」劫</a>|
+<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_4&from=apple" target="_blank">飢饿的遮羞布：二号病</a>
+
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_2&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E5%9B%9B%E5%8D%83%E4%B8%87%E4%BA%BA%E7%82%BA%E4%BD%95%E9%A5%BF%E6%AD%BB%EF%BC%9A%E5%A4%A7%E8%B7%83%E8%BF%9B.jpg" width="317" height="123"></a>
+
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c837862_1_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E6%B6%88%E7%81%AD%E6%B0%91%E8%90%A5%E8%B5%84%E6%9C%AC%E5%AE%B6%E7%9A%84%E3%80%8C%E4%BA%94%E5%8F%8D%E3%80%8D.jpg" width="317" height="123"></a>
+| ------------ | ------------- |
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_2&from=apple" target="_blank">四千万人為何饿死：大跃进</a>|
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c837862_1_1&from=apple" target="_blank">消灭民营资本家的「五反」</a>
+
 
 ### <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> [最新文章]（点击图片可直达）
  
