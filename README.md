@@ -66,20 +66,13 @@
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/0.jpeg" width="650" ></a>
 
 ---------------------------------------------------------
-
-
 <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_1_3&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/1.jpeg" width="317" height="123"></a>
-
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_4&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/2.jpeg" width="317" height="123"></a>
-
 | ------------ | ------------- |
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_1_3&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (一)</a>|
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_4&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (二)</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_1_3&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (一)</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_4&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (二)</a>
 
 
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (三)</a>|
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (四)</a>
-
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (三)</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (四)</a>
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_7&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (五)</a>
 
