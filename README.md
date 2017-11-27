@@ -273,13 +273,13 @@
 
 下载地址[网门安卓版](https://git.io/ogatea2)
 
-**神州正道安卓版**  看视频速度很快的。
+神州正道安卓版 看视频速度很快的。
 
 下载地址[神州正道安卓版](https://git.io/vQjqe)
 ------------------------------------------------------------
 
+ <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://raw.githubusercontent.com/osurf/up/master/tu3.gif" width="650" ></a>
 
-![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
 
 **●快退出共产党、共青团、少先队，保平安！**
 
@@ -287,9 +287,9 @@
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
-[提交网址1](http://t.cn/RIVviIP) 
+[提交网址1](http://rong.yov.li/?ogQuit.aspx&from=apple&tag=5478) 
 
-[提交网址2](http://t.cn/RKAUsP8) 
+[提交网址2](https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478) 
 
 
 ---------------------------------------------------------
