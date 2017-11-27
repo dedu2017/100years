@@ -1,6 +1,7 @@
 ## 欢迎来到：揭秘百年红祸 
 
    ✪ 本站永久网址  https://git.io/100 　网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 
+   
    从第一个共产政权苏俄出现到今天，整整一百年过去了。在短短一个世纪的时间里，共产主义造成了上亿人的死亡。共产党从一开始就亮出了与神争夺人类的旗帜，喊出“从来就没有什么救世主”，要把“旧世界打个落花流水”。
 
 共产主义来自何处？为什么宇宙中会冒出个共产党？共产主义的本质究竟是什么？结局又会怎样？对这些根本问题的答案，人们众说纷纭，现在是揭开谜底的时候了
@@ -170,7 +171,7 @@
  | --------------- | --------------- |
  |[毛泽东周恩来放弃日本巨额战争赔偿内幕](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqpc.pdf) | [毛泽东至少六次感谢日本侵华 官方记载成铁证](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gxrbqh.pdf) |
  
-## TXT电子书下载
+##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> TXT电子书下载
 
 ***九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip)
 **解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jtdwh.zip)
@@ -219,7 +220,7 @@
    </tr>
   <tr>
 
-## 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
+##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
 
 ✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp; 
 [【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
@@ -227,7 +228,7 @@
 <a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="317"  height="91"></a>
 <a href="https://git.io/fgp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8962833/542b236c-35f7-11e5-9b6b-5ecef4e6a46e.jpg" width="317"  height="91"></a>
 
-## 最新翻墙软件下载
+##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 最新翻墙软件下载
 ---------------------------------------------------------
 【电脑版翻墙软件】  看动态网，晓天下事！
 
@@ -261,7 +262,7 @@
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://raw.githubusercontent.com/osurf/up/master/tu3.gif" width="650" ></a>
 
 
-## 快退出共产党、共青团、少先队，保平安！
+##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 快退出共产党、共青团、少先队，保平安！
 
 进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
@@ -271,7 +272,7 @@
 [提交网址2](https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478) 
 
 
-## ■ 友好链接
+##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 友好链接
 
 [网门oGate](https://git.io/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)| [ 神韵:中国古典舞](https://github.com/dedu2017/gettruth/blob/master/README.md)|  [ 翻越红墙！](https://github.com/dedu2017/xw/blob/master/README.md)
 
