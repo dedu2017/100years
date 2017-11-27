@@ -1,5 +1,5 @@
-## 欢迎来到：
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/0001.gif" width="650" ></a>
+ 
    ✪ 本站永久网址  https://git.io/100 　网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 
    
    从第一个共产政权苏俄出现到今天，整整一百年过去了。在短短一个世纪的时间里，共产主义造成了上亿人的死亡。共产党从一开始就亮出了与神争夺人类的旗帜，喊出“从来就没有什么救世主”，要把“旧世界打个落花流水”。
