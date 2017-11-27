@@ -117,7 +117,6 @@
 | ------------ | ------------- |
 | [苏共与德国纳粹的秘密协议](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [苏共暴政下的群体灭绝（下）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf)|
 
-
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg" width="317" height="123"></a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg" width="317" height="123"></a>
  | --------------- | --------------- | 
@@ -171,9 +170,9 @@
  | --------------- | --------------- |
  |[毛泽东周恩来放弃日本巨额战争赔偿内幕](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqpc.pdf) | [毛泽东至少六次感谢日本侵华 官方记载成铁证](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gxrbqh.pdf) |
  
-##●TXT电子书下载**
+## TXT电子书下载
 
-**九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip)
+***九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip)
 **解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jtdwh.zip)
 **江泽民其人** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jqr.zip)
 **风雨天地行** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_fytdx.zip)
