@@ -229,9 +229,12 @@
 ---------------------------------------------------------
 【电脑版翻墙软件】  看动态网，晓天下事！
 
-**自由门** 自由门7.61版（5月12日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
+**自由门** 自由门7.61版（5月12日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar) 
+
 **无界浏览** 2017-11月12日无界发布17.04[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
+
 **无界火狐扩展**  2017-11-01 更新 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u1703.xpi)
+
 **爱博电视**  IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iPPOTV.rar)
 
 【安卓版翻墙软件】
@@ -243,6 +246,7 @@
 **新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
 
 **网门安卓版** 下载地址[网门安卓版](https://git.io/ogatea2) 下载地址[神州正道安卓版](https://git.io/vQjqe)
+
 ------------------------------------------------------------
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://raw.githubusercontent.com/osurf/up/master/tu3.gif" width="650" ></a>
 
