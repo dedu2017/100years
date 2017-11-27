@@ -61,8 +61,8 @@
 
 【绝处逢生】
 各种人罹患顽疾和绝症的悲凉故事，可是他们因各种因缘际遇，都得以绝处逢生。愿被病痛逼到绝路上的朋友，能够受益，给自己的人生重新敞开希望的大门。
+  [TXT电子书点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
 
-音频下载 [（一）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NTZfR2RoOEY?session_id=1482584641471816008&inline=0) [（二）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NThfWU8zV1g?session_id=1482584641471816008&inline=0)  [TXT电子书点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
 <a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100-2.gif" width="650" ></a>
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>【百年红祸】特别专题（点击图片可直达）
