@@ -35,7 +35,7 @@
 | ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_3&from=apple" target="_blank">百年红祸第三集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_4&from=apple" target="_blank"> 百年红祸第四集</a>
 
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_5&from=apple" target="_blank">百年红祸第五集集</a>|<a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_1_6&from=apple" target="_blank"> 百年红祸第六集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_5&from=apple" target="_blank">百年红祸第五集集</a>|<a href="https://s3.ca-central-1.amazonaws.com/ogates/oGate.htm?c837862_1_6&from=apple" target="_blank"> 百年红祸第六集</a>
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_7&from=apple" target="_blank">百年红祸第七集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_8&from=apple" target="_blank"> 百年红祸第八集</a>
 
@@ -43,7 +43,7 @@
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_11&from=apple" target="_blank">百年红祸第十一集</a>|<a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_1_12&from=apple" target="_blank">百年红祸第十二集</a>
 
- <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_13&from=apple" target="_blank">百年红祸第十三集</a>|<a href="https://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c837862_2_14&from=apple" target="_blank">百年红祸第十四集</a>
+ <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_13&from=apple" target="_blank">百年红祸第十三集</a>|<a href="https://s3.ca-central-1.amazonaws.com/ogates/oGate.htm?c837862_2_14&from=apple" target="_blank">百年红祸第十四集</a>
 
  
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党百年真相：特稿   
@@ -53,7 +53,7 @@
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?816833_2_971&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8354541a257043066.jpg" width="317" height="123"></a>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_922&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8318261a331114172.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?816833_2_971&from=apple" target="_blank">血腥的土改与农村的没落</a>|<a href="https://s3.eu-west-2.amazonaws.com/ogate/oGate.htm?c816833_2_922&from=apple" target="_blank">傅雷之死</a>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?816833_2_971&from=apple" target="_blank">血腥的土改与农村的没落</a>|<a href="https://s3.ca-central-1.amazonaws.com/ogates/oGate.htm?c816833_2_922&from=apple" target="_blank">傅雷之死</a>
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_901&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
 <a href="hhttps://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c816833_2_900&from=apple&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
@@ -243,37 +243,16 @@
 **风雨天地行** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_fytdx.zip)
 **绝处逢生** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
 
-**●经典视频下载**（高速）
-
-【伪火-天安门自焚真相】[点击下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMV92YnMwaw?session_id=1472013790229112002&inline=0&2016)【古今奇观-藏字石】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMF9wRmtPWA?session_id=1472013790229112002&inline=0&2016) 【64天安门事件】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4MF9wVXZ5ZA?session_id=1472012527698604009&inline=0&2016) 
-
-【朝鲜战争始末】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4Ml9DVUM3ZQ?session_id=1472012527698604009&inline=0&2016)  【江泽民卖国】[高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg3OF9STjNuaw?session_id=1472012527698604009&inline=0&2016)
-【地主刘文彩真相 】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMl84SzFUUw?session_id=1472013790229112002&inline=0&2016)
-
-【纪录片：我们告诉未来 】 [高速下载](https://mega.nz/#F!ctwFTTaQ!kz9NNpS6-4MnyaCx6AzpfA)
-
-一、气功铺路| 二、大法开传|三、破迷与正心 |四、从常人到修炼人 | 五、山雨欲来
-
- 六、在魔难中| 七、艰难岁月 | 八、真相与人心|九、来源与使命|十、封锁与反封锁
-
 【九评共产党】 [在线播放](https://git.io/tv123) [高速下载](https://mega.nz/#F!Z94yBTbb!CV0DrfTCPTQr9P2NYR_row)
 
-九评之一：评共产党是什么
-
+九评之一：评共产党是什么　　　
 九评之二：评中国共产党是怎样起家的
-
 九评之三：评中国共产党的暴政 
-   
 九评之四：评共产党是反宇宙的力量
-
 九评之五：评江泽民与中共相互利用迫害法轮功
-
 九评之六：评中国共产党破坏民族文化
-
 九评之七：评中国共产党的杀人历史
-
 九评之八：评中国共产党的邪教本质
-
 九评之九：评中国共产党的流氓本性
 
 【绝处逢生】
@@ -291,4 +270,6 @@
 [网门oGate](https://git.io/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)| [ 神韵:中国古典舞](https://github.com/dedu2017/gettruth/blob/master/README.md)|  [ 翻越红墙！](https://github.com/dedu2017/xw/blob/master/README.md)
 
 QQ或360浏览器流氓拦截请放行。
+
+
 
