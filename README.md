@@ -72,21 +72,15 @@
 <a href="https:/s3.us-east-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_3&from=apple" target="_blank">百年红祸第三集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_4&from=apple" target="_blank"> 百年红祸第四集</a>
-
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (三)</a>	  	<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (四)</a>
-
-
-
-
-
-
-
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_5&from=apple" target="_blank">百年红祸第五集</a>	  	<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_6&from=apple" target="_blank">百年红祸第六集</a> 
+| ------------ | ------------- |
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_5&from=apple" target="_blank">百年红祸第五集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_6&from=apple" target="_blank">百年红祸第六集</a> 
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_7&from=apple" target="_blank">百年红祸第七集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_8&from=apple" target="_blank"> 百年红祸第八集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_9&from=apple" target="_blank">百年红祸第九集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_10&from=apple" target="_blank">百年红祸第十集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_11&from=apple" target="_blank">百年红祸第十一集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_12&from=apple" target="_blank">百年红祸第十二集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_13&from=apple" target="_blank">百年红祸第十三集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_2_14&from=apple" target="_blank">百年红祸第十四集</a>
 
 
 
-
-<a href="" target="_blank"></a>	 | 	<a href="" target="_blank"></a>
 
 
 
