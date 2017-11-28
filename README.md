@@ -4,7 +4,7 @@
     <tr>
     <td align=center>请尝试不同通道，进入动态网址<br/>
     
-    | --------------- | --------------- | --------------- |
+| --------------- | --------------- | --------------- |
 | <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?c816833&from=apple&tag=5788" target="_blank">动态网址一</a>	 | 	<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c816833&from=apple&tag=5748" target="_blank">动态网址二</a> |<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833&from=apple&tag=5778" target="_blank">动态网址三</a>
 
 <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?c816833&from=apple&tag=5788">✪ 动态网址一..........</a>
