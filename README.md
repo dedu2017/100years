@@ -4,11 +4,6 @@
     <tr>
     <td align=center>请尝试不同通道，进入动态网址<br/>
     
-
-
-<a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?c816833&from=apple&tag=5788" target="_blank">动态网址一</a>|<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c816833&from=apple&tag=5748" target="_blank">动态网址二</a>
-
-
 <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?c816833&from=apple&tag=5788">✪ 动态网址一           </a>
       <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c816833&from=apple&tag=5748">✪ 动态网址二           </a>
       <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833&from=apple&tag=5778">✪ 动态网址三           </a><br/>
@@ -51,6 +46,27 @@
 | ------------ | ------------- |
 <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_1_3&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (一)</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_4&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (二)</a>
 
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (三)</a>	 | 	<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (四)</a>
+| --------------- | --------------- |
+| <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_7&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (五)</a>	 | 	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_8&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (六)</a> |
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<a href="" target="_blank"><img src="" width="" height=""></a>
+<a href="" target="_blank"><img src="" width="" height=""></a>
+| ------------ | ------------- |
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (三)</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (四)</a>
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_7&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (五)</a>
