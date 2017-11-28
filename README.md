@@ -254,4 +254,7 @@
 
 QQ或360浏览器流氓拦截请放行。
 
+
+
+
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/0002.gif" width="650" ></a>
