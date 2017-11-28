@@ -4,15 +4,15 @@
     <tr>
     <td align=center>请尝试不同通道，进入动态网址<br/>
     
-<a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?c816833&from=apple&tag=5788">✪ 动态网址一           </a>
-      <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c816833&from=apple&tag=5748">✪ 动态网址二           </a>
-      <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833&from=apple&tag=5778">✪ 动态网址三           </a><br/>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833&from=apple&tag=5478">✪ 动态网址四           </a>
-      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816833&from=apple&tag=5678">✪ 动态网址五           </a>
-      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?c816833&from=apple&tag=5718">✪ 动态网址六           </a><br/>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833&from=apple&tag=54780">✪ 动态网址七           </a>
-      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c816833&from=apple&tag=2578">✪ 动态网址八           </a>
-      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?c816833&from=apple&tag=6578">✪ 动态网址九           </a><br/>
+<a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?c816833&from=apple&tag=5788" target="_blank">✪ 动态网址一..............</a>	  	<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c816833&from=apple&tag=5748" target="_blank">✪ 动态网址二 ..............</a>
+
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833&from=apple&tag=5778" target="_blank">✪ 动态网址三..............</a>	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833&from=apple&tag=5478" target="_blank">✪ 动态网址四.............. </a>
+
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816833&from=apple&tag=5678" target="_blank">✪ 动态网址五..............</a>	  	<a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?c816833&from=apple&tag=5718" target="_blank">✪ 动态网址六.............. </a>
+
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833&from=apple&tag=54780" target="_blank">✪ 动态网址七..............</a>	  	<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c816833&from=apple&tag=2578" target="_blank">✪ 动态网址八.............. </a>
+ 
+<br/>
       微信如提示停止访问该网页，须先点击右上角，选择浏览器打开
     </td>
   </tr>
