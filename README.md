@@ -1,8 +1,8 @@
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/0001.gif" width="650" ></a>
  
    ✪ 本站永久网址  https://git.io/100 　网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 
-    <tr>
-    <td align=center>请尝试不同通道，进入动态网址<br/>
+    
+   请尝试不同通道，进入动态网址 微信如提示停止访问该网页，须先点击右上角，选择浏览器打开
     
 <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?c816833&from=apple&tag=5788" target="_blank">✪ 动态网址一..............</a>	  	<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c816833&from=apple&tag=5748" target="_blank">✪ 动态网址二 ..............</a>
 
@@ -12,11 +12,6 @@
 
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833&from=apple&tag=54780" target="_blank">✪ 动态网址七..............</a>	  	<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c816833&from=apple&tag=2578" target="_blank">✪ 动态网址八.............. </a>
  
-<br/>
-      微信如提示停止访问该网页，须先点击右上角，选择浏览器打开
-    </td>
-  </tr>
-   
  
    ✪ 　从第一个共产政权苏俄出现到今天，整整一百年过去了。在短短一个世纪的时间里，共产主义造成了上亿人的死亡。共产党从一开始就亮出了与神争夺人类的旗帜，喊出“从来就没有什么救世主”，要把“旧世界打个落花流水”。
 
@@ -77,8 +72,21 @@
 <a href="https:/s3.us-east-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_3&from=apple" target="_blank">百年红祸第三集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_4&from=apple" target="_blank"> 百年红祸第四集</a>
-| ------------ | ------------- |
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_5&from=apple" target="_blank">百年红祸第五集</a>	 | 	<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_6&from=apple" target="_blank">百年红祸第六集</a>
+
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (三)</a>	  	<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (四)</a>
+
+
+
+
+
+
+
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_5&from=apple" target="_blank">百年红祸第五集</a>	  	<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_6&from=apple" target="_blank">百年红祸第六集</a> 
+
+
+
+
+<a href="" target="_blank"></a>	 | 	<a href="" target="_blank"></a>
 
 
 
