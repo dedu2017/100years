@@ -45,31 +45,9 @@
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_4&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/2.jpeg" width="317" height="123"></a>
 | ------------ | ------------- |
 <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_1_3&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (一)</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_4&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (二)</a>
-
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (三)</a>	 | 	<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (四)</a>
-| --------------- | --------------- |
-| <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_7&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (五)</a>	 | 	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_8&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (六)</a> |
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-<a href="" target="_blank"><img src="" width="" height=""></a>
-<a href="" target="_blank"><img src="" width="" height=""></a>
 | ------------ | ------------- |
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (三)</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (四)</a>
-
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_7&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (五)</a>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (三)</a>	 | 	<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_1_6&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (四)</a>
+| <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_7&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (五)</a>	 | 	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_8&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (六)</a> |
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> TXT电子书下载
 
@@ -98,8 +76,14 @@
 <a href="https:/s3.us-east-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_3&from=apple" target="_blank">百年红祸第三集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_4&from=apple" target="_blank"> 百年红祸第四集</a>
+| ------------ | ------------- |
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_5&from=apple" target="_blank">百年红祸第五集</a>	 | 	<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_6&from=apple" target="_blank">百年红祸第六集</a>
 
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_5&from=apple" target="_blank">百年红祸第五集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_6&from=apple" target="_blank"> 百年红祸第六集</a>
+
+
+
+
+<a href="" target="_blank"></a>	 | 	<a href="" target="_blank"> </a>
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_7&from=apple" target="_blank">百年红祸第七集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_8&from=apple" target="_blank"> 百年红祸第八集</a>
 
