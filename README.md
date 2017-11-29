@@ -246,10 +246,14 @@
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 快退出共产党、共青团、少先队，保平安！
 进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
+
+中共不等于中国，中共一直在用谎言与暴力迫害中国民众，导致八千多万中国同胞非正常死亡，现在仍然在迫害善良的中国人。截至2017年11月28日，已有 290,558,436 人声明“三退”（退出中共邪党及其附属的共青团、少先队组织），每天可达十多万人。
+有人说“自己心中退党（团队）就算退了，不必声明”，还有人认为“自己多年没交党费了，就算自动退党了”，“超龄了，就自动退团（队）了”。 但这都不能抹掉举着右手宣誓时被打上的印记。只有声明退出中共党、团、队组织，才能解除毒誓，在天灭中共时免于被淘汰，为自己选择美好的未来。
+您在这里“三退”（几分钟就可以）是安全的，用真名、化名都可以。不仅不会影响您的工作与生活，反而会遇难呈祥，逢凶化吉。
+
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
-[提交网址1](http://rong.yov.li/?ogQuit.aspx&from=apple&tag=5478) 
-[提交网址2](https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478) 
+[提交网址1](http://rong.yov.li/?ogQuit.aspx&from=apple&tag=5478)    [提交网址2](https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478) 
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 友好链接
 [网门oGate](https://git.io/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)| [ 神韵:中国古典舞](https://github.com/dedu2017/gettruth/blob/master/README.md)|  [ 翻越红墙！](https://github.com/dedu2017/xw/blob/master/README.md)
