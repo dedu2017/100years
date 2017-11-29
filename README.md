@@ -253,7 +253,7 @@
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
-[提交网址1](http://rong.yov.li/?ogQuit.aspx&from=apple&tag=5478)    [提交网址2](https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478) 
+[提交网址1 ..............](http://rong.yov.li/?ogQuit.aspx&from=apple&tag=5478)    [提交网址2 ..............](https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478) 
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 友好链接
 [网门oGate](https://git.io/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)| [ 神韵:中国古典舞](https://github.com/dedu2017/gettruth/blob/master/README.md)|  [ 翻越红墙！](https://github.com/dedu2017/xw/blob/master/README.md)
