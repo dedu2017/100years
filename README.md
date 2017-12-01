@@ -256,10 +256,7 @@
 [提交网址1 ..............](http://rong.yov.li/?ogQuit.aspx&from=apple&tag=5478)    [提交网址2 ..............](https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478) 
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/1511171451242192.jpg" width="650" ></a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/1511171451242192.jpg" width="650" ></a>
-
-
-
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/2017-11-30_190649.JPG" width="650" ></a>
 
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 友好链接
