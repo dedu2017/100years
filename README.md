@@ -47,7 +47,7 @@
  
   <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_9&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (七)</a>		  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_10&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (八)</a> 
  
-  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_11&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (九)</a>
+  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_11&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (九)</a>	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_1_12&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (十)</a> 
 
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> TXT电子书下载
