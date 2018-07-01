@@ -69,8 +69,6 @@
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_15&from=apple" target="_blank">百年红祸第十五集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_16&from=apple" target="_blank">百年红祸第十六集</a>
 
 
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_9&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E3%80%8C%E4%B8%80%E5%89%AF%E5%AF%B9%E8%81%94%E3%80%8D%E5%BC%95%E5%8F%91%E7%9A%84%E5%B1%A0%E6%9D%80.jpg" width="317" height="123"></a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_7&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E8%82%83%E5%8F%8D%E5%A4%A7%E8%B7%83%E8%BF%9B%20%E6%8C%89%E8%AE%A1%E5%88%92%E6%8C%87%E6%A0%87%E6%8A%93%E4%BA%BA%E6%9D%80%E4%BA%BA.jpg" width="317" height="123"></a>
 
 
 ## <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> [最新文章]（点击图片可直达）
