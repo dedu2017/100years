@@ -232,7 +232,7 @@
  
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 更多精彩请访问「网门」，点击图片可直达
 
-<a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="640" height="123"></a>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?&from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="640" height="123"></a>
 ###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>　打开天窗,听一听外面的声音...
    <td align=center>  
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816850&from=apple">✪今日点击...........全球华语最热脱口秀</a><br/>
@@ -276,14 +276,14 @@
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
-[提交网址1 ..............](http://rong.yov.li/?ogQuit.aspx&from=apple&tag=5478)    [提交网址2 ..............](https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478) 
+[提交网址1 ..............](https://s3.eu-central-1.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478)    [提交网址2 ..............](https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478) 
 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/1511171451242192.jpg" width="650" ></a>
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/2017-11-30_190649.JPG" width="650" ></a>
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 了解真相
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogMemo&from=apple&tag=5478" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" width="317" height="123"></a>
-<a href="http://rong.yov.li/?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" width="317" height="123"></a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogMemo&from=apple&tag=5578" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" width="317" height="123"></a>
  
  ---------------------------------------------------------
  
