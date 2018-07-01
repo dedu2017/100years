@@ -32,24 +32,24 @@
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/0.jpeg" width="650" ></a>
 
 
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">✪  共产主义的终极目的 (一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_14_4&from=apple" target="_blank">✪  共产主义的终极目的 (二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">✪  共产主义的终极目的 (一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_14_4&from=apple" target="_blank">✪  共产主义的终极目的 (二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_14_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
 
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_13_4&from=apple" target="_blank">✪  共产主义的终极目的 (三）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_12_4&from=apple" target="_blank">✪  共产主义的终极目的 (四) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_13_4&from=apple" target="_blank">✪  共产主义的终极目的 (三）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_13_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_12_4&from=apple" target="_blank">✪  共产主义的终极目的 (四) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_12_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
 
 
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_11_4&from=apple" target="_blank">✪  共产主义的终极目的 (五）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_10_4&from=apple" target="_blank">✪  共产主义的终极目的 (六) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_11_4&from=apple" target="_blank">✪  共产主义的终极目的 (五）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_11_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_10_4&from=apple" target="_blank">✪  共产主义的终极目的 (六) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_10_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
 
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_9_4&from=apple" target="_blank">✪  共产主义的终极目的 (七）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_8_4&from=apple" target="_blank">✪  共产主义的终极目的 (八) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_9_4&from=apple" target="_blank">✪  共产主义的终极目的 (七）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_9_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_8_4&from=apple" target="_blank">✪  共产主义的终极目的 (八) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_8_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
 
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_7_4&from=apple" target="_blank">✪  共产主义的终极目的 (九）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_6_4&from=apple" target="_blank">✪  共产主义的终极目的 (十) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_7_4&from=apple" target="_blank">✪  共产主义的终极目的 (九）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_7_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_6_4&from=apple" target="_blank">✪  共产主义的终极目的 (十) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_6_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
 
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_5_4&from=apple" target="_blank">✪  共产主义的终极目的 (十一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_4_4&from=apple" target="_blank">✪  共产主义的终极目的 (十二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_5_4&from=apple" target="_blank">✪  共产主义的终极目的 (十一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_5_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_4_4&from=apple" target="_blank">✪  共产主义的终极目的 (十二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_4_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
 
 
  
