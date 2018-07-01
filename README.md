@@ -57,25 +57,44 @@
 
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/p8917351a975750561.jpg" width="650" ></a>
  
- <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (一)</a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_14_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (二)</a>
+ <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_2&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_3&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (二) 文字 </a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_2&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
 
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_13_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (三)</a>	  	<a href="https://s3.amazonaws.com/ogate/oGate.htm?c838296_12_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界(四)</a>
 
- <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_11_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界的 (五)</a>	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_10_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界(六)</a> 
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_4&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (三）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_3&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_5&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (四) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+
+
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_6&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (五）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_5&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_7&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (六) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_6&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+
+
+
+
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_8&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (七）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_7&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_9&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (八) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_8&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+
+
+
+
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_10&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (九）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_9&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_11&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_10&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+
+
+
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_12&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_11&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_13&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_12&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+
+
+
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_14&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十三）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_13&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_15&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十四) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_14&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+
+
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_16&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十五）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_15&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_17&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十六) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_16&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+
+
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_184&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十七）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_17&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a>
+
+
  
-  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_9_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (七)</a>		  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_8_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (八)</a> 
  
-  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_7_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (九)</a>	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_6_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (十)</a> 		 
+ 
   
-  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_5_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (十一)</a> 	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_4_4&from=apple"  target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (十二)</a> 
- 
-  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_5_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (十三)</a> 	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_4_4&from=apple"  target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (十四)</a> 
- 
-  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_5_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (十五)</a> 	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_4_4&from=apple"  target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (十六)</a> 
-  
-   <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_5_4&from=apple" target="_blank">《九评》编辑部：魔鬼在统治着我们的世界 (十七)</a>  
- 
- 
  
  
  
