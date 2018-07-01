@@ -42,14 +42,11 @@
  
   <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_9_4&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (七)</a>		  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_8_4&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (八)</a> 
  
-  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_6_4&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (九)</a>	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_4_4&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (十)</a> 		 
+  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_7_4&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (九)</a>	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_6_4&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (十)</a> 		 
   
-  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_3_4&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (十一)</a> 	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_2_4&from=apple"  target="_blank">《九评》编辑部：共产主义的终极目的 (十二)</a> 
+  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_5_4&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (十一)</a> 	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_4_4&from=apple"  target="_blank">《九评》编辑部：共产主义的终极目的 (十二)</a> 
   
-  
- 音频：
-
-
+ 
 <a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100-2.gif" width="650" ></a>
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>【百年红祸】特别专题（点击图片可直达）
@@ -70,8 +67,6 @@
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_11&from=apple" target="_blank">百年红祸第十一集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_12&from=apple" target="_blank">百年红祸第十二集</a>
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_13&from=apple" target="_blank">百年红祸第十三集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_14&from=apple" target="_blank">百年红祸第十四集</a>
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_15&from=apple" target="_blank">百年红祸第十五集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_16&from=apple" target="_blank">百年红祸第十六集</a>
-
-
 
 
 ## <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> [最新文章]（点击图片可直达）
@@ -107,11 +102,6 @@
 | ------------ | ------------- |
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_2&from=apple" target="_blank">四千万人為何饿死：大跃进</a>|<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c837862_1_1&from=apple" target="_blank">消灭民营资本家的「五反」</a>
 
-
-
-
-| ------------ | ------------- |
-| [苏共与德国纳粹的秘密协议](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf) | [苏共暴政下的群体灭绝（下）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf)|
 
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg" width="317" height="123"></a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg" width="317" height="123"></a>
