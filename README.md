@@ -26,11 +26,6 @@
 | ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_901&from=apple" target="_blank">共产主义不是出路 而是绝路（上）</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_900&from=apple" target="_blank">共产主义不是出路 而是绝路（下）</a>
 
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?816833_2_971&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8354541a257043066.jpg" width="317" height="123"></a>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_922&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8318261a331114172.jpg" width="317" height="123"></a>
-| ------------ | ------------- |
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?816833_2_971&from=apple" target="_blank">血腥的土改与农村的没落</a>|<a href="https://s3.ca-central-1.amazonaws.com/ogates/oGate.htm?c816833_2_922&from=apple" target="_blank">傅雷之死</a>
-
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产主义的终极目的
 
@@ -51,20 +46,6 @@
   
   <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_2_13&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (十一)</a> 	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_2_14&from=apple" target="_blank">《九评》编辑部：共产主义的终极目的 (十二)</a> 
 
-
-##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> TXT电子书下载
-
-***九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip)
-**解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jtdwh.zip)
-**江泽民其人** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jqr.zip)
-**风雨天地行** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_fytdx.zip)
-**绝处逢生** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
-
-【九评共产党】 [在线播放](https://git.io/tv123) [高速下载](https://mega.nz/#F!Z94yBTbb!CV0DrfTCPTQr9P2NYR_row)
-
-【绝处逢生】
-各种人罹患顽疾和绝症的悲凉故事，可是他们因各种因缘际遇，都得以绝处逢生。愿被病痛逼到绝路上的朋友，能够受益，给自己的人生重新敞开希望的大门。
-  [TXT电子书点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
 
 <a href="http://kjdfug.dedu.me/?c816833&from=apple&tag=578" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/100-2.gif" width="650" ></a>
 
@@ -186,6 +167,21 @@
  | --------------- | --------------- |
  |[毛泽东周恩来放弃日本巨额战争赔偿内幕](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqpc.pdf) | [毛泽东至少六次感谢日本侵华 官方记载成铁证](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gxrbqh.pdf) |
  
+ 
+ 
+##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> TXT电子书下载
+
+***九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip)
+**解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jtdwh.zip)
+**江泽民其人** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jqr.zip)
+**风雨天地行** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_fytdx.zip)
+**绝处逢生** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
+
+【九评共产党】 [在线播放](https://git.io/tv123) [高速下载](https://mega.nz/#F!Z94yBTbb!CV0DrfTCPTQr9P2NYR_row)
+
+ 
+ 
+ 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 更多精彩请访问「网门」，点击图片可直达
 
 <a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="640" height="123"></a>
@@ -253,26 +249,20 @@
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 最新翻墙软件下载
 
-【电脑版翻墙软件】  看动态网，晓天下事！
+<p><strong>下载翻墙软件</strong></p>
+</h3>
+<p><a href="https://git.io/fgp" rel="nofollow">自由门</a></p>
+<p><a href="https://git.io/vEJlj rel="nofollow">无界浏览</a></p>
+<p><a href="https://git.io/fgma" rel="nofollow">自由门安卓版</a></p>
+<p><a href="https://s3.amazonaws.com/693/um.apk" rel="nofollow">无界浏览安卓版</a></p>
+<p><a href="https://github.com/dtw9/9/raw/master/201861502.apk">聚缘阁安卓版</a></p>
+<p><a href="https://git.io/vQjqe" rel="nofollow">神州正道安卓4.0+（手机版）</a></p>
+<p><a href="https://git.io/vAonz" rel="nofollow">神州正道安卓4.1+（电视机顶盒版）</a></p>
+<p><a href="https://git.io/vA5GO" rel="nofollow">神州正道安卓2.3+（手机版）</a></p>
+<p><a href="https://github.com/bannedbook/fanqiang/wiki">更多翻墙软件</a></p>
+旧版和新版的使用环境不同。旧版适合老机子。<br>
 
-**自由门** 自由门7.61版（5月12日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar) 
-
-**无界浏览** 2017-11月12日无界发布17.04[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
-
-**无界火狐扩展**  2017-11-01 更新 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u1703.xpi)
-
-**爱博电视**  IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iPPOTV.rar)
-
-【安卓版翻墙软件】
-
-【★推荐★】**无界一点通**安卓版的翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
-
-10月18日无界发布安卓版4.1 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
-
-**新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
-
-**网门安卓版** 下载地址[网门安卓版](https://git.io/ogatea2) 下载地址[神州正道安卓版](https://git.io/vQjqe)
-
+**网门安卓版** 下载地址[网门安卓版](https://git.io/ogatea2) 
 
 
 
