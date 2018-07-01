@@ -69,13 +69,6 @@
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_15&from=apple" target="_blank">百年红祸第十五集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_16&from=apple" target="_blank">百年红祸第十六集</a>
 
 
-##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>百年红祸
-
-<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_18&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E6%83%A8%E7%BB%9D%E4%BA%BA%E7%8E%AF%E7%9A%84%E9%81%93%E5%8E%BF%E5%B1%A0%E6%9D%80.jpg" width="317" height="123"></a>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_14&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E4%BA%BA%E5%90%83%E4%BA%BA%E6%80%8E%E9%BA%BC%E6%9D%A5%E7%9A%84%20%E5%90%83%E4%BA%BA%E7%8B%82%E6%BD%AE%E7%9A%84%E5%BF%83%E7%90%86%E6%BC%94%E5%8F%98.jpg" width="317" height="123"></a>
-| ------------ | ------------- |
-<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_18&from=apple" target="_blank">惨绝人环的道县屠杀</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_14&from=apple" target="_blank">人吃人怎麼来的 吃人狂潮的心理演变</a>
-
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_9&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E3%80%8C%E4%B8%80%E5%89%AF%E5%AF%B9%E8%81%94%E3%80%8D%E5%BC%95%E5%8F%91%E7%9A%84%E5%B1%A0%E6%9D%80.jpg" width="317" height="123"></a>
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_7&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E8%82%83%E5%8F%8D%E5%A4%A7%E8%B7%83%E8%BF%9B%20%E6%8C%89%E8%AE%A1%E5%88%92%E6%8C%87%E6%A0%87%E6%8A%93%E4%BA%BA%E6%9D%80%E4%BA%BA.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
@@ -118,6 +111,14 @@
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg" width="317" height="123"></a>
  | --------------- | --------------- | 
  | [苏共暴政下的群体灭绝（上）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [广西文革中的吃人狂潮（中）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
+ 
+<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_18&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E6%83%A8%E7%BB%9D%E4%BA%BA%E7%8E%AF%E7%9A%84%E9%81%93%E5%8E%BF%E5%B1%A0%E6%9D%80.jpg" width="317" height="123"></a>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_14&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E4%BA%BA%E5%90%83%E4%BA%BA%E6%80%8E%E9%BA%BC%E6%9D%A5%E7%9A%84%20%E5%90%83%E4%BA%BA%E7%8B%82%E6%BD%AE%E7%9A%84%E5%BF%83%E7%90%86%E6%BC%94%E5%8F%98.jpg" width="317" height="123"></a>
+| ------------ | ------------- |
+<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_18&from=apple" target="_blank">惨绝人环的道县屠杀</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_14&from=apple" target="_blank">人吃人怎麼来的 吃人狂潮的心理演变</a>
+ 
+ 
+ 
 
 ###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产党破坏传统道德
 ---------------------------------------------------------
