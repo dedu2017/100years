@@ -96,80 +96,45 @@
  <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf" target="_blank">中国漫画开拓者丰子恺的文革遭遇</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/mdhd.pdf" target="_blank">末代皇帝文革中连病带吓而死 族人被抄家</a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc1.pdf" target="_blank">广西文革中的吃人狂潮（上）</a>	 | 	<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqml.pdf" target="_blank">林辉：放弃马列的陈独秀与其逃港的女儿</a>
 
-###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党杀人历史
----------------------------------------------------------
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgnc.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg" width="317" height="123"></a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj2.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg" width="317" height="123"></a>
-| ------------ | ------------- |
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_9&from=apple" target="_blank">「一副对联」引发的屠杀</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_7&from=apple" target="_blank">肃反大跃进 按计划指标抓人杀人</a>
 
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_6&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E7%BC%84%E5%8F%A3%E8%AF%9B%E5%BF%83%20%E7%9F%A5%E8%AF%86%E4%BB%BD%E5%AD%90%E7%9A%84%E3%80%8C%E5%8F%8D%E5%8F%B3%E3%80%8D%E5%8A%AB.jpg" width="317" height="123"></a>
-<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_4&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E9%A3%A2%E9%A5%BF%E7%9A%84%E9%81%AE%E7%BE%9E%E5%B8%83%EF%BC%9A%E4%BA%8C%E5%8F%B7%E7%97%85.jpg" width="317" height="123"></a>
-| ------------ | ------------- |
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_6&from=apple" target="_blank">缄口诛心 知识份子的「反右」劫</a>|<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_4&from=apple" target="_blank">飢饿的遮羞布：二号病</a>
-
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_2&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E5%9B%9B%E5%8D%83%E4%B8%87%E4%BA%BA%E7%82%BA%E4%BD%95%E9%A5%BF%E6%AD%BB%EF%BC%9A%E5%A4%A7%E8%B7%83%E8%BF%9B.jpg" width="317" height="123"></a>
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c837862_1_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E6%B6%88%E7%81%AD%E6%B0%91%E8%90%A5%E8%B5%84%E6%9C%AC%E5%AE%B6%E7%9A%84%E3%80%8C%E4%BA%94%E5%8F%8D%E3%80%8D.jpg" width="317" height="123"></a>
-| ------------ | ------------- |
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_2&from=apple" target="_blank">四千万人為何饿死：大跃进</a>|<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c837862_1_1&from=apple" target="_blank">消灭民营资本家的「五反」</a>
-
-<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_18&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E6%83%A8%E7%BB%9D%E4%BA%BA%E7%8E%AF%E7%9A%84%E9%81%93%E5%8E%BF%E5%B1%A0%E6%9D%80.jpg" width="317" height="123"></a>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_14&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E4%BA%BA%E5%90%83%E4%BA%BA%E6%80%8E%E9%BA%BC%E6%9D%A5%E7%9A%84%20%E5%90%83%E4%BA%BA%E7%8B%82%E6%BD%AE%E7%9A%84%E5%BF%83%E7%90%86%E6%BC%94%E5%8F%98.jpg" width="317" height="123"></a>
-| ------------ | ------------- |
-<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_18&from=apple" target="_blank">惨绝人环的道县屠杀</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_14&from=apple" target="_blank">人吃人怎麼来的 吃人狂潮的心理演变</a>
+####  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产党杀人历史
  
+ | [![image](https://cloud.githubusercontent.com/assets/18081243/24584561/235e165e-1737-11e7-8f87-08229efb9bd6.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/sgnc.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24584564/27e1bf6e-1737-11e7-8b71-3031c6b4470b.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/sgqtmj2.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/sgqtmj1.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/crkc2.pdf) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ | [苏共与德国纳粹的秘密协议](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/sgnc.pdf) | [苏共暴政下的群体灭绝（下）](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/sgqtmj2.pdf) | [苏共暴政下的群体灭绝（上）](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/sgqtmj1.pdf) | [广西文革中的吃人狂潮（中）](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/crkc2.pdf) |
  
+###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党破坏传统道德
  
-
-###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产党破坏传统道德
----------------------------------------------------------
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590322/984c05c4-17b0-11e7-9421-892044616c2f.jpg" width="317" height="123"></a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hrtwxbl.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg" width="317" height="123"></a>
---------------- | --------------- |
- | [中共“批孔”和建孔子学院的闹剧](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzxy.pdf) | [广西文革中骇人听闻的性暴力](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/hrtwxbl.pdf)
+ | [![image](https://cloud.githubusercontent.com/assets/18081243/24590322/984c05c4-17b0-11e7-9421-892044616c2f.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/kzxy.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/hrtwxbl.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590326/a7909b62-17b0-11e7-8f55-55231ecbfe8e.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zbhl.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590327/a9285be0-17b0-11e7-9161-43fcb3f97bd2.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/kzlszg1.pdf) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ | [中共“批孔”和建孔子学院的闹剧](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/kzxy.pdf) | [广西文革中骇人听闻的性暴力](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/hrtwxbl.pdf) | [砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zbhl.pdf) | [魏谷：孔子、历史和中共（一）](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/kzlszg1.pdf) | 
  
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zbhl.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590326/a7909b62-17b0-11e7-8f55-55231ecbfe8e.jpg" width="317" height="123"></a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzlszg1.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590327/a9285be0-17b0-11e7-9161-43fcb3f97bd2.jpg" width="317" height="123"></a>
- | --------------- | --------------- | 
- | [砸碑毁林 刨坟曝尸 中共如何扫荡孔庙圣地](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zbhl.pdf) | [魏谷：孔子、历史和中共（一）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/kzlszg1.pdf) | 
+###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>[共产党迫害文化精英](https://github.com/xjy16/BaiNianCCP/blob/master/ArticleList/phjy/articleList1.md)
  
-###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党迫害文化精英
----------------------------------------------------------
- <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ldzyzz.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24584568/3034fde8-1737-11e7-964d-849b7599f51d.jpg" width="317" height="123"></a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/qjdzy.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590366/655ddcfe-17b1-11e7-87cd-b9e29ea40462.jpg" width="317" height="123"></a>
-| --------------- | --------------- |
-| [林辉：李大钊与其被中共批斗的长子](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/ldzyzz.pdf) | [被枪决的1955年文科状元](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/qjdzy.pdf)|
-
- <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wzgyxfx.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590367/655f011a-17b1-11e7-94ff-6c6ffd3b97cf.jpg" width="317" height="123"></a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590365/655d7674-17b1-11e7-92a6-1841f118c507.jpg" width="317" height="123"></a>
- | --------------- | ---------------  | 
- |[吴祖光与新凤霞——文艺伉俪的人生磨难](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/wzgyxfx.pdf) | [中国漫画开拓者丰子恺的文革遭遇](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fzkwg.pdf) |
+| [<img src="https://cloud.githubusercontent.com/assets/18081243/24584568/3034fde8-1737-11e7-964d-849b7599f51d.jpg" width="300" height="123">](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/ldzyzz.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590366/655ddcfe-17b1-11e7-87cd-b9e29ea40462.jpg" width="300" height="123">](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/qjdzy.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590367/655f011a-17b1-11e7-94ff-6c6ffd3b97cf.jpg" width="300" height="123">](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/wzgyxfx.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590365/655d7674-17b1-11e7-92a6-1841f118c507.jpg" width="300" height="123">](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/fzkwg.pdf) |
+| --------------- | --------------- | --------------- | --------------- |
+| [林辉：李大钊与其被中共批斗的长子](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/ldzyzz.pdf) | [被枪决的1955年文科状元](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/qjdzy.pdf) | [吴祖光与新凤霞——文艺伉俪的人生磨难](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/wzgyxfx.pdf) | [中国漫画开拓者丰子恺的文革遭遇](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/fzkwg.pdf) |
 
 ###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产党窜改历史
----------------------------------------------------------
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zjjj.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590497/d0e23a04-17b3-11e7-8602-4a94920a9ef5.jpg" width="317" height="123"></a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sb56.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590495/d0e16d36-17b3-11e7-9952-c15d04917ebe.jpg" width="317" height="123"></a>
-| --------------- | --------------- |
- | [林辉：造假的江姐受刑与《红岩》作者自杀](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zjjj.pdf) | <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sb56.pdf" target="view_window">林辉：山本五十六座机被击落与中美合作所</a> |
  
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/djhhj.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590498/d0e29486-17b3-11e7-96a8-c3e025ba0249.jpg" width="317" height="123"></a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zsdcr.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590496/d0e194d2-17b3-11e7-8568-53145a296bad.jpg" width="317" height="123"></a>
- | --------------- | --------------- |
- [李宇明：大饥荒时期的红色画家](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/djhhj.pdf) | [林辉：真实的董存瑞与同名电影主角的遭遇](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zsdcr.pdf) |
+ | [![image](https://cloud.githubusercontent.com/assets/18081243/24590497/d0e23a04-17b3-11e7-8602-4a94920a9ef5.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zjjj.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590495/d0e16d36-17b3-11e7-9952-c15d04917ebe.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/sb56.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590498/d0e29486-17b3-11e7-96a8-c3e025ba0249.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/djhhj.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590496/d0e194d2-17b3-11e7-8568-53145a296bad.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zsdcr.pdf) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ | [林辉：造假的江姐受刑与《红岩》作者自杀](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zjjj.pdf) | <a href="https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/sb56.pdf" target="view_window">林辉：山本五十六座机被击落与中美合作所</a> | [李宇明：大饥荒时期的红色画家](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/djhhj.pdf) | [林辉：真实的董存瑞与同名电影主角的遭遇](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zsdcr.pdf) |
 
 ###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党卖国
----------------------------------------------------------
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz2.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590526/37a7deec-17b4-11e7-813a-97f702fc6da6.jpg" width="317" height="123"></a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz1.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590527/37a8ca82-17b4-11e7-8706-36b888ee68d0.jpg" width="317" height="123"></a>
- | --------------- | --------------- |
- [中国人应知的重要事—中共七宗罪(下)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz2.pdf) | [中国人应知的重要事—中共七宗罪(上)](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/zgqzz1.pdf) | 
  
- <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqpc.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590529/37ac61ba-17b4-11e7-9bd5-303e7de63886.jpg" width="317" height="123"></a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gxrbqh.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590528/37a9f0f6-17b4-11e7-8223-021777d5049c.jpg" width="317" height="123"></a>
- | --------------- | --------------- |
- |[毛泽东周恩来放弃日本巨额战争赔偿内幕](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/fqpc.pdf) | [毛泽东至少六次感谢日本侵华 官方记载成铁证](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/gxrbqh.pdf) |
+ | [![image](https://cloud.githubusercontent.com/assets/18081243/24590526/37a7deec-17b4-11e7-813a-97f702fc6da6.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zgqzz2.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590527/37a8ca82-17b4-11e7-8706-36b888ee68d0.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zgqzz1.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590529/37ac61ba-17b4-11e7-9bd5-303e7de63886.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/fqpc.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590528/37a9f0f6-17b4-11e7-8223-021777d5049c.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/gxrbqh.pdf) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ | [中国人应知的重要事—中共七宗罪(下)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zgqzz2.pdf) | [中国人应知的重要事—中共七宗罪(上)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zgqzz1.pdf) | [毛泽东周恩来放弃日本巨额战争赔偿内幕](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/fqpc.pdf) | [毛泽东至少六次感谢日本侵华 官方记载成铁证](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/gxrbqh.pdf) |
+
+###  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产党党魁面目
  
- 
+ | [![image](https://cloud.githubusercontent.com/assets/18081243/24590543/76ec4c14-17b4-11e7-82f2-45692489cb7b.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/jznds1.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg" width="300" height="123">](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zelzmm2.pdf) | [![image](https://cloud.githubusercontent.com/assets/18081243/24590544/76ef1354-17b4-11e7-8670-64f9dc6c5c0a.jpg)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/mlxydzjj.pdf) | [<img src="https://cloud.githubusercontent.com/assets/18081243/24590542/76ebadc2-17b4-11e7-8f95-8d691a70f738.jpg" width="300" height="123">](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zelzmm1.pdf) | 
+ | --------------- | --------------- | --------------- | --------------- |
+ | [周晓辉：从金正男被毒杀看共产党暗杀历史(上)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/jznds1.pdf) | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(下)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zelzmm2.pdf) | [毛泽东一句话 马来西亚共产党陷斗争绝境](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/mlxydzjj.pdf) | [周恩来在贺龙惨死案中真面目 副总理看绝密档案惊呆(上)](https://github.com/xjy16/BaiNianCCP/blob/master/Article/Readme/zelzmm1.pdf) |
+
+
+
  
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> TXT电子书下载
 
