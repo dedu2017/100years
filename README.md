@@ -21,9 +21,11 @@
  
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 共产党百年真相：特稿   
 
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_901&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
-<a href="hhttps://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c816833_2_900&from=apple&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
 
+
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_901&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a>
+<a href="hhttps://s3.eu-west-2.amazonaws.com/ogates/oGate.htm?c816833_2_900&from=apple&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/p8302401a666157499.jpg" width="317" height="123"></a> 
+| ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_901&from=apple" target="_blank">共产主义不是出路 而是绝路（上）</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833_2_900&from=apple" target="_blank">共产主义不是出路 而是绝路（下）</a>
 
 
@@ -31,25 +33,13 @@
 
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/0.jpeg" width="650" ></a>
 
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">✪  共产主义的终极目的 (一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_14_4&from=apple" target="_blank">✪  共产主义的终极目的 (二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_14_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_13_4&from=apple" target="_blank">✪  共产主义的终极目的 (三）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_13_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_12_4&from=apple" target="_blank">✪  共产主义的终极目的 (四) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_12_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
-
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_11_4&from=apple" target="_blank">✪  共产主义的终极目的 (五）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_11_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_10_4&from=apple" target="_blank">✪  共产主义的终极目的 (六) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_10_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_9_4&from=apple" target="_blank">✪  共产主义的终极目的 (七）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_9_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_8_4&from=apple" target="_blank">✪  共产主义的终极目的 (八) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_8_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_7_4&from=apple" target="_blank">✪  共产主义的终极目的 (九）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_7_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_6_4&from=apple" target="_blank">✪  共产主义的终极目的 (十) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_6_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_5_4&from=apple" target="_blank">✪  共产主义的终极目的 (十一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_5_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_4_4&from=apple" target="_blank">✪  共产主义的终极目的 (十二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_4_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">✪  共产主义的终极目的 (一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_14_4&from=apple" target="_blank">✪  共产主义的终极目的 (二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_14_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+| ------------ | ------------- |
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_13_4&from=apple" target="_blank">✪  共产主义的终极目的 (三）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_13_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_12_4&from=apple" target="_blank">✪  共产主义的终极目的 (四) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_12_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_11_4&from=apple" target="_blank">✪  共产主义的终极目的 (五）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_11_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_10_4&from=apple" target="_blank">✪  共产主义的终极目的 (六) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_10_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_9_4&from=apple" target="_blank">✪  共产主义的终极目的 (七）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_9_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_8_4&from=apple" target="_blank">✪  共产主义的终极目的 (八) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_8_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_7_4&from=apple" target="_blank">✪  共产主义的终极目的 (九）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_7_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_6_4&from=apple" target="_blank">✪  共产主义的终极目的 (十) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_6_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_5_4&from=apple" target="_blank">✪  共产主义的终极目的 (十一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_5_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_4_4&from=apple" target="_blank">✪  共产主义的终极目的 (十二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_4_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
 
 
  
@@ -57,42 +47,17 @@
 
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/p8917351a975750561.jpg" width="650" ></a>
  
- <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_2&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_3&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (二) 文字 </a>
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_2&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_2&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_1&from=apple" target="_blank">&nbsp;音频 </a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_3&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_2&from=apple" target="_blank">&nbsp;音频</a>
+| ------------ | ------------- |
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_4&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (三）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_3&from=apple" target="_blank">&nbsp;音频 </a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_5&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (四) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_6&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (五）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_5&from=apple" target="_blank">&nbsp;音频</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_7&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (六) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_6&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_8&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (七）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_7&from=apple" target="_blank">&nbsp;音频</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_9&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (八) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_8&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_10&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (九）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_9&from=apple" target="_blank">&nbsp;音频</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_11&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_10&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_12&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_11&from=apple" target="_blank">&nbsp;音频</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_13&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_12&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_14&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十三）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_13&from=apple" target="_blank">&nbsp;音频</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_15&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十四) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_14&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_16&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十五）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_15&from=apple" target="_blank">&nbsp;音频</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_17&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十六) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_16&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_184&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十七）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_17&from=apple" target="_blank">&nbsp;音频 </a>
 
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_4&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (三）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_3&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_5&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (四) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_4&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
-
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_6&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (五）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_5&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_7&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (六) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_6&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
-
-
-
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_8&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (七）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_7&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_9&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (八) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_8&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
-
-
-
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_10&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (九）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_9&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_11&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_10&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
-
-
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_12&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十一）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_11&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_13&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_12&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
-
-
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_14&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十三）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_13&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_15&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十四) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_14&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
-
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_16&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十五）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_15&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c919750_1_17&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十六) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_16&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
-
-
-<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_1_184&from=apple" target="_blank">✪  魔鬼在统治着我们的世界 (十七）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c919750_2_17&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp; </a>
-
-
- 
- 
  
   
  
@@ -105,19 +70,14 @@
 <a href="https://s3-us-west-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1051&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 <a href="https:/s3.us-east-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_1&from=apple" target="_blank">百年红祸第一集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_2&from=apple" target="_blank"> 百年红祸第二集</a>
-
-<a href="https://s3-us-west-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1051&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
-<a href="https:/s3.us-east-2.amazonaws.com/ogates/oGate.htm?c816833_2_1055&from=apple" target="_blank"><img src="https://github.com/dedu2017/bnhh/blob/master/bh-01.jpg" width="317" height="123"></a>
-| ------------ | ------------- |
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_3&from=apple" target="_blank">百年红祸第三集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_4&from=apple" target="_blank"> 百年红祸第四集</a>
-| ------------ | ------------- |
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_5&from=apple" target="_blank">百年红祸第五集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_6&from=apple" target="_blank">百年红祸第六集</a> 
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_7&from=apple" target="_blank">百年红祸第七集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_8&from=apple" target="_blank"> 百年红祸第八集</a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_9&from=apple" target="_blank">百年红祸第九集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_10&from=apple" target="_blank">百年红祸第十集</a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_11&from=apple" target="_blank">百年红祸第十一集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_12&from=apple" target="_blank">百年红祸第十二集</a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_13&from=apple" target="_blank">百年红祸第十三集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_14&from=apple" target="_blank">百年红祸第十四集</a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_15&from=apple" target="_blank">百年红祸第十五集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_16&from=apple" target="_blank">百年红祸第十六集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_1&from=apple" target="_blank">百年红祸  第一集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_2&from=apple" target="_blank"> 百年红祸  第二集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_3&from=apple" target="_blank">百年红祸  第三集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_4&from=apple" target="_blank"> 百年红祸  第四集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_5&from=apple" target="_blank">百年红祸    第五集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_6&from=apple" target="_blank">百年红祸  第六集</a> 
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_7&from=apple" target="_blank">百年红祸  第七集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_8&from=apple" target="_blank"> 百年红祸  第八集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_9&from=apple" target="_blank">百年红祸  第九集</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_10&from=apple" target="_blank">百年红祸  第十集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_11&from=apple" target="_blank">百年红祸  第十一集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_12&from=apple" target="_blank">百年红祸  第十二集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_13&from=apple" target="_blank">百年红祸  第十三集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_14&from=apple" target="_blank">百年红祸  第十四集</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_4_15&from=apple" target="_blank">百年红祸  第十五集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_4_16&from=apple" target="_blank">百年红祸  第十六集</a>
 
 
 ## <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> [最新文章]（点击图片可直达）
