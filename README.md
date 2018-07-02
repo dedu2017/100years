@@ -107,16 +107,11 @@
 <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_4&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E9%A3%A2%E9%A5%BF%E7%9A%84%E9%81%AE%E7%BE%9E%E5%B8%83%EF%BC%9A%E4%BA%8C%E5%8F%B7%E7%97%85.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_6&from=apple" target="_blank">缄口诛心 知识份子的「反右」劫</a>|<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_4&from=apple" target="_blank">飢饿的遮羞布：二号病</a>
-
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_2&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E5%9B%9B%E5%8D%83%E4%B8%87%E4%BA%BA%E7%82%BA%E4%BD%95%E9%A5%BF%E6%AD%BB%EF%BC%9A%E5%A4%A7%E8%B7%83%E8%BF%9B.jpg" width="317" height="123"></a>
 <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c837862_1_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E6%B6%88%E7%81%AD%E6%B0%91%E8%90%A5%E8%B5%84%E6%9C%AC%E5%AE%B6%E7%9A%84%E3%80%8C%E4%BA%94%E5%8F%8D%E3%80%8D.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_2&from=apple" target="_blank">四千万人為何饿死：大跃进</a>|<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c837862_1_1&from=apple" target="_blank">消灭民营资本家的「五反」</a>
 
-
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg" width="317" height="123"></a>
-<a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg" width="317" height="123"></a>
-  
 <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_18&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E6%83%A8%E7%BB%9D%E4%BA%BA%E7%8E%AF%E7%9A%84%E9%81%93%E5%8E%BF%E5%B1%A0%E6%9D%80.jpg" width="317" height="123"></a>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_14&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E4%BA%BA%E5%90%83%E4%BA%BA%E6%80%8E%E9%BA%BC%E6%9D%A5%E7%9A%84%20%E5%90%83%E4%BA%BA%E7%8B%82%E6%BD%AE%E7%9A%84%E5%BF%83%E7%90%86%E6%BC%94%E5%8F%98.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
