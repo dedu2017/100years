@@ -236,10 +236,8 @@
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/2017-11-30_190649.JPG" width="650" ></a>
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 了解真相
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogMemo&from=apple&tag=5478" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" width="317" height="123"></a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogMemo&from=apple&tag=5578" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" width="317" height="123"></a>
- 
- ---------------------------------------------------------
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogMemo&from=apple&tag=5478" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" ></a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogMemo&from=apple&tag=5578" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" ></a>
  
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
@@ -257,14 +255,15 @@
 <p><a href="https://git.io/vEJlj rel="nofollow">无界浏览</a></p>
 <p><a href="https://git.io/fgma" rel="nofollow">自由门安卓版</a></p>
 <p><a href="https://s3.amazonaws.com/693/um.apk" rel="nofollow">无界浏览安卓版</a></p>
+ 
+##**网门安卓版** 下载地址[网门安卓版](https://git.io/ogatea2) 
+
 <p><a href="https://github.com/dtw9/9/raw/master/201861502.apk">聚缘阁安卓版</a></p>
 <p><a href="https://git.io/vQjqe" rel="nofollow">神州正道安卓4.0+（手机版）</a></p>
 <p><a href="https://git.io/vAonz" rel="nofollow">神州正道安卓4.1+（电视机顶盒版）</a></p>
 <p><a href="https://git.io/vA5GO" rel="nofollow">神州正道安卓2.3+（手机版）</a></p>
 <p><a href="https://github.com/bannedbook/fanqiang/wiki">更多翻墙软件</a></p>
 旧版和新版的使用环境不同。旧版适合老机子。<br>
-
-**网门安卓版** 下载地址[网门安卓版](https://git.io/ogatea2) 
 
 
 
