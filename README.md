@@ -107,6 +107,7 @@
 <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_4&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E9%A3%A2%E9%A5%BF%E7%9A%84%E9%81%AE%E7%BE%9E%E5%B8%83%EF%BC%9A%E4%BA%8C%E5%8F%B7%E7%97%85.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_1_6&from=apple" target="_blank">缄口诛心 知识份子的「反右」劫</a>|<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_4&from=apple" target="_blank">飢饿的遮羞布：二号病</a>
+
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_2&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E5%9B%9B%E5%8D%83%E4%B8%87%E4%BA%BA%E7%82%BA%E4%BD%95%E9%A5%BF%E6%AD%BB%EF%BC%9A%E5%A4%A7%E8%B7%83%E8%BF%9B.jpg" width="317" height="123"></a>
 <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c837862_1_1&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E6%B6%88%E7%81%AD%E6%B0%91%E8%90%A5%E8%B5%84%E6%9C%AC%E5%AE%B6%E7%9A%84%E3%80%8C%E4%BA%94%E5%8F%8D%E3%80%8D.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
