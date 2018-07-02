@@ -116,9 +116,7 @@
 
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24584566/2b859474-1737-11e7-9fcf-9a59a01143ab.jpg" width="317" height="123"></a>
 <a href="https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24590323/9ff588a4-17b0-11e7-87a8-76a96f419a20.jpg" width="317" height="123"></a>
- | --------------- | --------------- | 
- | [苏共暴政下的群体灭绝（上）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/sgqtmj1.pdf) | [广西文革中的吃人狂潮（中）](https://d1uvgy0lcmmygf.cloudfront.net/pdf/bngcd/crkc2.pdf) |
- 
+  
 <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c837862_1_18&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E6%83%A8%E7%BB%9D%E4%BA%BA%E7%8E%AF%E7%9A%84%E9%81%93%E5%8E%BF%E5%B1%A0%E6%9D%80.jpg" width="317" height="123"></a>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_1_14&from=apple" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/%E4%BA%BA%E5%90%83%E4%BA%BA%E6%80%8E%E9%BA%BC%E6%9D%A5%E7%9A%84%20%E5%90%83%E4%BA%BA%E7%8B%82%E6%BD%AE%E7%9A%84%E5%BF%83%E7%90%86%E6%BC%94%E5%8F%98.jpg" width="317" height="123"></a>
 | ------------ | ------------- |
