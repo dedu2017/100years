@@ -4,13 +4,11 @@
     
    请尝试不同通道，进入动态网址 微信如提示停止访问该网页，须先点击右上角，选择浏览器打开
     
-<a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?c816833&from=apple&tag=5788" target="_blank">✪ 动态网址一..............</a>	  	<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c816833&from=apple&tag=5748" target="_blank">✪ 动态网址二 ..............</a>
-
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833&from=apple&tag=5778" target="_blank">✪ 动态网址三..............</a>	  	<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833&from=apple&tag=5478" target="_blank">✪ 动态网址四.............. </a>
-
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816833&from=apple&tag=5678" target="_blank">✪ 动态网址五..............</a>	  	<a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?c816833&from=apple&tag=5718" target="_blank">✪ 动态网址六.............. </a>
-
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833&from=apple&tag=54780" target="_blank">✪ 动态网址七..............</a>	  	<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c816833&from=apple&tag=2578" target="_blank">✪ 动态网址八.............. </a>
+<a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?c816833&from=apple&tag=5788" target="_blank">✪ 动态网址一&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a>|<a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?c816833&from=apple&tag=5748" target="_blank">✪ 动态网址二 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a>
+| ------------ | ------------- |
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833&from=apple&tag=5778" target="_blank">✪ 动态网址三&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816833&from=apple&tag=5478" target="_blank">✪ 动态网址四.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816833&from=apple&tag=5678" target="_blank">✪ 动态网址五&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a>|<a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?c816833&from=apple&tag=5718" target="_blank">✪ 动态网址六&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833&from=apple&tag=54780" target="_blank">✪ 动态网址七.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</a>|<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c816833&from=apple&tag=2578" target="_blank">✪ 动态网址八&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>
  
  
    ✪ 　从第一个共产政权苏俄出现到今天，整整一百年过去了。在短短一个世纪的时间里，共产主义造成了上亿人的死亡。共产党从一开始就亮出了与神争夺人类的旗帜，喊出“从来就没有什么救世主”，要把“旧世界打个落花流水”。
@@ -202,8 +200,8 @@
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogQuit.aspx&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/2017-11-30_190649.JPG" width="650" ></a>
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 了解真相
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogMemo&from=apple&tag=5478" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" ></a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogMemo&from=apple&tag=5578" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" ></a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816855&from=apple&tag=5478" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" ></a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816846&from=apple&tag=5578" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" ></a>
  
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a> 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
