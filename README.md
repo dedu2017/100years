@@ -30,21 +30,19 @@
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产主义的终极目的
 
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/0.jpeg" width="650" ></a>
-
-   ✪ 　视频
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_1&from=apple" target="_blank">之一：序言</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_2&from=apple" target="_blank"> 之二：中心之国 神传文化</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_1&from=apple" target="_blank">视频:之一序言</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_2&from=apple" target="_blank">视频: 之二中心之国 神传文化</a>
 | ------------ | ------------- |
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_3&from=apple" target="_blank">共产主义的终极目的之三：不为人知的马克思</a>|<a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?c837862_16_4&from=apple" target="_blank"> 共产主义的终极目的之四：毁灭人类的路线图  </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_5&from=apple" target="_blank">共产主义的终极目的之五：万变不离其邪</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_6&from=apple" target="_blank">共产主义的终极目的  之六：先给甜头，再让人吃尽苦头</a> 
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_7&from=apple" target="_blank">共产主义的终极目的之七：受苦的还是工人和农民</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_8&from=apple" target="_blank"> 共产主义的终极目的之八：毁灭人类</a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_9&from=apple" target="_blank">共产主义的终极目的之九：共产邪灵一路杀 </a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_10&from=apple" target="_blank">共产主义的终极目的之十：苏俄预演 中共登台</a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_17&from=apple" target="_blank">共产主义的终极目之十一：屠杀精英集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_12&from=apple" target="_blank">共产主义的终极目的  之十二：破坏自然  </a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_13&from=apple" target="_blank">共产主义的终极目的  之十三：毁灭文化  </a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_14&from=apple" target="_blank">共产主义的终极目的之十四：邪恶之最</a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_15&from=apple" target="_blank">共产主义的终极目的十五：毁人不倦</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_16&from=apple" target="_blank">共产主义的终极目的十六：反神骂祖宗 （2019年4月8日）</a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_17&from=apple" target="_blank">共产主义的终极目的  之十三：毁灭文化  </a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_17&from=apple" target="_blank">共产主义的终极目的之十七：颠倒善恶</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_3&from=apple" target="_blank">视频:之三不为人知的马克思</a>|<a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?c837862_16_4&from=apple" target="_blank"> 视频:之四毁灭人类的路线图  </a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_5&from=apple" target="_blank">视频:之五万变不离其邪</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_6&from=apple" target="_blank">视频:之六先给甜头，再让人吃尽苦头</a> 
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_7&from=apple" target="_blank">视频:之七受苦的还是工人和农民</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_8&from=apple" target="_blank"> 视频:之八毁灭人类</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_9&from=apple" target="_blank">视频:之九共产邪灵一路杀 </a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_10&from=apple" target="_blank">视频:之十苏俄预演 中共登台</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_17&from=apple" target="_blank">视频:之十一屠杀精英集</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_12&from=apple" target="_blank">视频:之十二破坏自然  </a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_13&from=apple" target="_blank">视频:之十三毁灭文化  </a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_14&from=apple" target="_blank">视频:之十四邪恶之最</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_15&from=apple" target="_blank">视频:十五毁人不倦</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_16&from=apple" target="_blank">视频:十六反神骂祖宗 （2019年4月8日）</a>
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_17&from=apple" target="_blank">视频:之十七：颠倒善恶  </a>
 
 
- ✪ 　文字及音频
+
 <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">✪  共产主义的终极目的 (一）文字 </a><a href="https://s3.amazonaws.com/ogate/show.htm?c838296_15_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_14_4&from=apple" target="_blank">✪  共产主义的终极目的 (二) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_14_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
 | ------------ | ------------- |
 <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_13_4&from=apple" target="_blank">✪  共产主义的终极目的 (三）文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_13_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_12_4&from=apple" target="_blank">✪  共产主义的终极目的 (四) 文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_12_1&from=apple" target="_blank">&nbsp;音频&nbsp;&nbsp;&nbsp;&nbsp;</a>
