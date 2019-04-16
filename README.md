@@ -29,6 +29,11 @@
 
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产主义的终极目的
 
+ <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862&from=apple&tag=5478" target="_blank"><img src="https://raw.githubusercontent.com/dedu2017/100years/master/0.jpeg" width="650" ></a>
+ 
+
+
+
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_1&from=apple" target="_blank">✪   (一）视频</a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_15_4&from=apple" target="_blank">&nbsp;&nbsp;文字 </a><a href="https://s3.amazonaws.com/ogate/show.htm?c838296_15_1&from=apple" target="_blank">&nbsp;&nbsp;音频</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_2&from=apple" target="_blank">✪  (二）视频</a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_14_4&from=apple" target="_blank">  &nbsp;&nbsp;文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_14_1&from=apple" target="_blank">&nbsp;&nbsp;音频</a>
 |------------|-------------|
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_3&from=apple" target="_blank">✪   (三）视频</a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_13_4&from=apple" target="_blank">&nbsp;&nbsp;文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_13_1&from=apple" target="_blank">&nbsp;&nbsp;音频&nbsp;&nbsp; </a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_4&from=apple" target="_blank">✪   (四）视频</a><a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296_12_4&from=apple" target="_blank"> &nbsp;&nbsp;文字 </a><a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?c838296_12_1&from=apple" target="_blank">&nbsp;&nbsp;音频</a>
