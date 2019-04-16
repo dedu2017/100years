@@ -31,10 +31,10 @@
 
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/0.jpeg" width="650" ></a>
 
-| ------------ | ------------- |
 
 
 <a    href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_1&from=apple" target="_blank">共产主义的终极目的  之一：序言</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_2&from=apple" target="_blank"> 共产主义的终极目的之二：中心之国 神传文化</a>
+| ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_3&from=apple" target="_blank">共产主义的终极目的之三：不为人知的马克思</a>|<a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?c837862_16_4&from=apple" target="_blank"> 共产主义的终极目的之四：毁灭人类的路线图  </a>
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_5&from=apple" target="_blank">共产主义的终极目的之五：万变不离其邪</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_6&from=apple" target="_blank">共产主义的终极目的  之六：先给甜头，再让人吃尽苦头</a> 
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_7&from=apple" target="_blank">共产主义的终极目的之七：受苦的还是工人和农民</a>|<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_8&from=apple" target="_blank"> 共产主义的终极目的之八：毁灭人类</a>
