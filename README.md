@@ -30,7 +30,8 @@
 ##  <img src="https://github.com/dedu2017/100years/blob/master/rss.jpg" ></a>共产主义的终极目的
 
  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c838296&from=apple&tag=5478" target="_blank"><img src="https://github.com/dedu2017/100years/blob/master/0.jpeg" width="650" ></a>
-<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_1&from=apple" target="_blank">视频:之一序言</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_2&from=apple" target="_blank">视频: 之二中心之国 神传文化</a>
+ 
+<a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_1&from=apple" target="_blank">之一序言</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_2&from=apple" target="_blank">之二中心之国 神传文化</a>
 | ------------ | ------------- |
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_3&from=apple" target="_blank">视频:之三不为人知的马克思</a>|<a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?c837862_16_4&from=apple" target="_blank"> 视频:之四毁灭人类的路线图  </a>
 <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c837862_16_5&from=apple" target="_blank">视频:之五万变不离其邪</a>|<a href="https://s3.amazonaws.com/ogate/oGate.htm?c837862_16_6&from=apple" target="_blank">视频:之六先给甜头，再让人吃尽苦头</a> 
